@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月23日 21时24分59秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>旅游服务质量提升政策，景区旅游板块走强</h3><br><p>锂电铝箔价格上调5%，铝箔上市公司盈利弹性释放。<br><br> | 来源：<code>https;//yuyan360tiyumianfeizhibonba.org.cn
+</code></p><br><br><h3>中国中铁一带一路布局：海外基建订单的长期增长逻辑</h3><br><p>北向资金连续调研后举牌智能电网标的，外资持续流入。<br><br> | 来源：<code>https;//yuyan360tiyumianfeizhibozuqiu.org.cn
+</code></p><br><br><h3>养老金新进光伏逆变器标的，海外市占率提升获长期配置</h3><br><p>拉美多国签署货币互换协议，减少对美元依赖。<br><br> | 来源：<code>https;//yuyan360tiyunbazhibo.org.cn
+</code></p><br><br><h3>外资单日大额买入宁德时代25亿，动力电池龙头获持续流入</h3><br><p>全国家政服务业营收上半年同比增长16%，民生消费升温。<br><br> | 来源：<code>https;//yuyan360tiyuzuqiuzhibo.org.cn
+</code></p><br><br><h3>科达利结构件精密制造：锂电池结构件龙头的全球份额</h3><br><p>长电科技先进封装放量，前三季度业绩预增超50%。<br><br> | 来源：<code>https;//yuyan360tiyuzuqiuzhiborukou.org.cn
+</code></p><br><br><h3>上半年全国风电装机新增超3000万千瓦，清洁能源建设提速</h3><br><p>保险资管扎堆调研CRO龙头，创新药管线临床数据披露。<br><br> | 来源：<code>https;//yuyan360zhibonbagaoqing.com.cn
+</code></p><br><br><h3>存款利率连续下调，居民配置权益资产意愿持续增强</h3><br><p>智飞生物异动拉升4.9%，疫苗产品批签发量回升。<br><br> | 来源：<code>https;//yuyandigezhibonba.org.cn
+</code></p><br><br><h3>泰山暑期单日登顶客流破6万，夜间登山游客占比超70%</h3><br><p>正泰电器放量上涨3.7%，户用光伏装机量领先。<br><br> | 来源：<code>https;//yuyanlanqiuzhibomianfeishipinzhibo.org.cn
+</code></p><br><br><h3>国产历史剧细节考究，多部作品成为全网热议文化现象</h3><br><p>超240家机构到访氢能燃料电池标的，商用车推广数据公开。<br><br> | 来源：<code>https;//yuyanlanqiuzhibonbazaixianzhibo.org.cn
+</code></p><br><br><h3>游资顶级席位打板亨通光电5400万，海缆标的获热炒</h3><br><p>思源电气电网设备优势：民营电网设备龙头的技术积累。<br><br> | 来源：<code>https;//yuyannbazaixiangaoqingmianfeizhibo.org.cn
+</code></p><br><br><h3>国产都市剧收视领跑，聚焦当代年轻人生活引发广泛讨论</h3><br><p>大股东耗资6亿增持半导体材料龙头，彰显国产替代信心。<br><br> | 来源：<code>https;//yuyannbazaixianwuchajianzhibo.com.cn
+</code></p><br><br><h3>全国骑行赛事超千场，骑行运动参与人数破5000万</h3><br><p>全球粮食价格指数连续6个月回落，粮食危机压力缓解。<br><br> | 来源：<code>https;//yuyannbazhibobajrszhibo.com.cn
+</code></p><br><br><h3>比亚迪Q3销量破百万，业绩预告同比翻倍</h3><br><p>全国太湖蓝藻水华预警系统升级，提前7天精准预判。<br><br> | 来源：<code>https;//yuyannbazhibomianfeizhibo.com.cn
+</code></p><br><br><h3>中国男子射击队世锦赛斩获6金，奥运席位全部拿满</h3><br><p>广州珠江夜游暑期航班加密，日均接待游客超5万人次。<br><br> | 来源：<code>https;//yuyansaishizaixianzhiboapp.com.cn
+</code></p><br><br><h3>紫金矿业全球资源布局：铜金龙头的长期产量增长逻辑</h3><br><p>全国县域旅游百强县榜单发布，江浙地区占比超六成。<br><br> | 来源：<code>https;//yuyantiyunbazhibomianfeigaoqing.org.cn
+</code></p><br><br><h3>钾肥价格连续上涨10%，钾肥板块盈利弹性释放</h3><br><p>天齐锂业触底反弹，锂矿价格企稳带动板块情绪。<br><br> | 来源：<code>https;//yuyanzhiboappguanfangxiazai.com.cn
+</code></p><br><br><h3>5年期LPR下调带动房企开发贷利率下行，房企盈利改善</h3><br><p>煤炭价格企稳回升，煤炭高股息标的集体上涨。<br><br> | 来源：<code>https;//yuyanzhiboguanwangdizhi.com.cn
+</code></p><br><br><h3>知名私募调研卫星互联网标的，低轨卫星组网计划披露</h3><br><p>碳化硅衬底标的登陆科创板，6英寸衬底产能全球领先。<br><br> | 来源：<code>https;//yuyanzhiboguanwangshouye.com.cn
+</code></p><br><br><h3>全国水泥行业碳减排技术升级，低碳生产线占比超60%</h3><br><p>北向资金单日买入中国神华1.5亿，高股息龙头获外资持续流入。<br><br> | 来源：<code>https;//yuyanzhiboguanwangzaixianzhibo.com.cn
+</code></p><br><br><h3>海洋强国建设新规划发布，海洋经济总量突破9万亿元</h3><br><p>生物育种企业开启新股申购，转基因商业化落地节奏领先。<br><br> | 来源：<code>https;//yuyanzhiboguanwangzaixianzhiboguankan.com.cn
