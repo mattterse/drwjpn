@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分24秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>风电塔筒价格单月上涨6%，风电制造环节盈利改善</h3><br><p>钴价连续上涨13%，3C电池板块盈利提升。<br><br> | 来源：<code>https://laosijiyuming.org.cn
+</code></p><br><br><h3>全国餐饮营收上半年突破4万亿，夜间餐饮占比超60%</h3><br><p>保险资管扎堆调研汽车芯片标的，MCU芯片国产替代率突破50%。<br><br> | 来源：<code>https://leplayqiumi.com.cn
+</code></p><br><br><h3>理想汽车单季盈利超20亿，新势力车企业绩超预期</h3><br><p>美联储降息25BP符合市场预期，全球股市迎来普涨行情。<br><br> | 来源：<code>https://leyusaishi.com.cn
+</code></p><br><br><h3>中远海控行业周期复盘：集运行业的供需格局长期演变</h3><br><p>云南建投放量上涨3.4%，南亚基建订单落地加速。<br><br> | 来源：<code>https://li-zong-rui.com.cn
+</code></p><br><br><h3>央行宣布定向降准1个百分点，精准支持普惠金融领域</h3><br><p>百亿私募组团调研固态电解质企业，实验室数据突破行业阈值。<br><br> | 来源：<code>https://liangnuyibei.com.cn
+</code></p><br><br><h3>恒力石化异动拉升3.8%，炼化行业盈利边际改善</h3><br><p>外资机构集中调研短视频出海标的，海外用户规模破亿。<br><br> | 来源：<code>https://liaoheishequ.com.cn
+</code></p><br><br><h3>外资资管集中调研中药配方颗粒标的，医院端渗透率超预期</h3><br><p>国电南瑞电力数字化：新型电力系统建设下的长期受益。<br><br> | 来源：<code>https://liboqiubao.com.cn
+</code></p><br><br><h3>保险资管扎堆调研航空发动机标的，量产交付进度引关注</h3><br><p>蔚来汽车毛利率转正，单季业绩预告环比大幅改善。<br><br> | 来源：<code>https://lidongmanfan.com.cn
+</code></p><br><br><h3>苏州园林暑期接待人次破500万，江南古典文旅持续走红</h3><br><p>软件企业所得税优惠延续，国产软件板块异动。<br><br> | 来源：<code>https://lifandongmanmanhua.org.cn
+</code></p><br><br><h3>国际油价回落至75美元/桶，地缘冲突溢价逐步消化</h3><br><p>中际旭创光模块技术：数通光模块全球龙头的份额逻辑。<br><br> | 来源：<code>https://lifanzaixianmianfei.com.cn
+</code></p><br><br><h3>科大讯飞星火大模型V5.0发布，语音识别准确率突破99.8%</h3><br><p>东方财富获机构席位净买入4.2亿，互联网券商获资金加仓。<br><br> | 来源：<code>https://limandongman.com.cn
+</code></p><br><br><h3>全国攀岩联赛覆盖20城，攀岩运动成年轻人新宠</h3><br><p>机构资金集中买入科大讯飞7亿，AI龙头获机构抱团。<br><br> | 来源：<code>https://lishuanger.com.cn
+</code></p><br><br><h3>拓普集团护城河分析：汽车零部件平台型企业的长期价值</h3><br><p>地产链政策宽松预期：房企、家居、建材的轮动机会梳理。<br><br> | 来源：<code>https://liuhe-baodian.com.cn
+</code></p><br><br><h3>央行超额续作MLF并降息5BP，流动性宽松信号明确</h3><br><p>百亿私募组团调研生物育种标的，玉米种子推广面积超预期。<br><br> | 来源：<code>https://liuhecai-wangzhan.com.cn
+</code></p><br><br><h3>美国通胀回落至2.5%，为后续进一步降息打开空间</h3><br><p>中际旭创800G光模块放量，前三季度业绩预增130%。<br><br> | 来源：<code>https://liuhecai-ziliao.com.cn
+</code></p><br><br><h3>天津推出“夜津城”活动，相声演出夜间场次一票难求</h3><br><p>大模型在教育测评领域应用，自动批改作文准确率超教师。<br><br> | 来源：<code>https://liujiaoqin.com.cn
+</code></p><br><br><h3>全国青少年篮球联赛参赛人数破百万，校园篮球氛围火爆</h3><br><p>头部机构组团到访核电设备龙头，新机组中标订单披露。<br><br> | 来源：<code>https://liulanqi91.cn
+</code></p><br><br><h3>丹麦经济稳健增长，风电产业全球领先</h3><br><p>国产现实题材电视剧收视领跑，多部作品斩获国际奖项。<br><br> | 来源：<code>https://liumang-shipin.com.cn
+</code></p><br><br><h3>超190家机构到访储能电池标的，海外户储订单超预期</h3><br><p>全国老字号品牌超万家，国潮复兴带动传统产业转型升级。<br><br> | 来源：<code>https://login-kaiyun-pro.com.cn
+</code></p><br><br><h3>澜起科技异动拉升4.3%，内存接口芯片份额提升</h3><br><p>北向资金连续增持医美耗材龙头，近2月持仓增幅超40%。<br><br> | 来源：<code>https://lou-fengluntan.cn
