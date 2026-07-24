@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分26秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>金风科技风电装机超预期，前三季度业绩预增超40%</h3><br><p>公募基金集体到访钙钛矿光伏企业，量产进度超市场预期。<br><br> | 来源：<code>https://new-huangguashipin.com.cn
+</code></p><br><br><h3>保险资管举牌工业软件龙头，研发设计软件国产替代获重仓</h3><br><p>外资机构席位净买入先导智能8600万，锂电设备龙头加仓。<br><br> | 来源：<code>https://new-hyou.com.cn
+</code></p><br><br><h3>长安汽车涨停封板，突破后的延续性如何判断</h3><br><p>全国生态保护红线划定完成，覆盖超三分之一陆域面积。<br><br> | 来源：<code>https://new-jinmantiantang.com.cn
+</code></p><br><br><h3>中国女子柔道队世锦赛斩获2金，奥运备战扎实推进</h3><br><p>数字中国建设新规划，数字经济标的集体异动。<br><br> | 来源：<code>https://new-jisutiyu.com.cn
+</code></p><br><br><h3>北向资金连续增持养老产业标的，银发经济赛道获外资流入</h3><br><p>全国江豚种群数量突破2000头，长江微笑天使重现。<br><br> | 来源：<code>https://new-jiujiujiu.com.cn
+</code></p><br><br><h3>国内AI算力网络国家枢纽节点全部建成，实现算力全国调度</h3><br><p>芯片价格开启涨价潮，半导体板块盈利迎来修复。<br><br> | 来源：<code>https://new-jiujiure.com.cn
+</code></p><br><br><h3>AI智能客服替代率超80%，企业客服成本下降60%</h3><br><p>中国围棋队包揽亚运会全部金牌，延续项目统治力。<br><br> | 来源：<code>https://new-jiujiushipin.com.cn
+</code></p><br><br><h3>机构资金集中买入牧原股份2.5亿，养殖龙头获机构抱团</h3><br><p>外资持续流入北方稀土，稀土龙头外资持仓占比突破2.5%。<br><br> | 来源：<code>https://new-jiujiuyingshi.com.cn
+</code></p><br><br><h3>北向资金举牌工业机器人龙头，外资持仓创历史新高</h3><br><p>北向资金单日净流入超150亿，降息后外资加速入场。<br><br> | 来源：<code>https://new-jiujiuyingyuan.com.cn
+</code></p><br><br><h3>全国公积金贷款政策优化，支持居民合理住房需求</h3><br><p>全国珍稀濒危植物保护名录更新，超千种植物得到有效保护。<br><br> | 来源：<code>https://new-lala.com.cn
+</code></p><br><br><h3>证监会启动全面注册制优化改革，提升资本市场包容性</h3><br><p>预制菜产业标准出台，预制菜板块走强。<br><br> | 来源：<code>https://new-lebeijing.com.cn
+</code></p><br><br><h3>全球可再生能源投资首次超过化石能源，能源转型拐点到来</h3><br><p>政策性银行加大降息力度，基建项目融资成本大幅下降。<br><br> | 来源：<code>https://new-ledongsports.com.cn
+</code></p><br><br><h3>地方国资战略入股数据要素龙头，持股比例达12%成第二大股东</h3><br><p>锂电铜箔价格上涨4%，铜箔龙头盈利边际改善。<br><br> | 来源：<code>https://new-leisi.com.cn
+</code></p><br><br><h3>长安汽车涨停封板，突破后的延续性如何判断</h3><br><p>北方华创半导体设备订单爆发，单季业绩预增超80%。<br><br> | 来源：<code>https://new-lulu.com.cn
+</code></p><br><br><h3>正邦科技债务重组：养殖企业困境反转的案例解析</h3><br><p>机构+北向合力买入新希望6700万，养殖标的获资金布局。<br><br> | 来源：<code>https://new-lulushe.com.cn
+</code></p><br><br><h3>理想汽车涨超8.5%，L系列车型月销破4万</h3><br><p>基金公司集体到访氢能储运龙头，高压储氢瓶订单爆发。<br><br> | 来源：<code>https://new-luotimeinu.com.cn
+</code></p><br><br><h3>万科A地产龙头抗风险能力：行业调整期的稳健经营逻辑</h3><br><p>创新器械企业登陆港股，核心管线海外FDA获批引资金追捧。<br><br> | 来源：<code>https://new-madouchuanmei.com.cn
+</code></p><br><br><h3>五粮液品牌与渠道优势：浓香型白酒龙头的护城河解析</h3><br><p>暑期亲子游订单同比增长45%，研学旅行成为消费新热点。<br><br> | 来源：<code>https://new-meiridasai.com.cn
+</code></p><br><br><h3>全国城镇调查失业率降至4.8%，就业形势保持总体稳定</h3><br><p>游资顶级席位打板亨通光电5400万，海缆标的获热炒。<br><br> | 来源：<code>https://new-mg-tiyu.com.cn
+</code></p><br><br><h3>卓胜微放量拉升5.7%，射频芯片行业景气度回升</h3><br><p>合肥推出“科里科气”文旅线路，科技研学游订单暴涨。<br><br> | 来源：<code>https://new-mianfeikanpian.com.cn
