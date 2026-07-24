@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分11秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>北向资金连续增持工业母机龙头，高端制造获外资持续流入</h3><br><p>亚太经合组织峰会召开，达成数字经济合作框架。<br><br> | 来源：<code>https://jmwangyeban.com.cn
+</code></p><br><br><h3>产业资本集中增持元宇宙内容龙头，布局线下体验店扩张</h3><br><p>10年期国债收益率下行，保险板块配置压力边际缓解。<br><br> | 来源：<code>https://js9001vip-official-login.com
+</code></p><br><br><h3>2026年上半年国内旅游人次突破30亿，同比增长18%</h3><br><p>民宿行业规范发展政策，乡村旅游标的全线拉升。<br><br> | 来源：<code>https://k1-sports-trust.com
+</code></p><br><br><h3>端侧大模型普及，旗舰手机本地运行70B参数大模型</h3><br><p>云从科技人机协同大模型3.0发布，赋能人机交互场景。<br><br> | 来源：<code>https://kai-sports-live.com.cn
+</code></p><br><br><h3>疫情新变种出现，医药防护板块集体走强</h3><br><p>长江经济带发展成效显著，生态优先绿色发展格局形成。<br><br> | 来源：<code>https://kai-yun-tiyu-guan-wang.com.cn
+</code></p><br><br><h3>外资资管连续加仓CXO龙头，近3月持仓占比提升至7%</h3><br><p>多晶硅价格连续上涨7%，光伏产业链价格体系企稳回升。<br><br> | 来源：<code>https://kaiyuan-board-hub.com.cn
+</code></p><br><br><h3>小鹏汽车异动拉升9.2%，新车型交付量超预期</h3><br><p>暑期电影票房突破120亿，国产影片包揽票房前十。<br><br> | 来源：<code>https://kaiyuan-qipai-pro.com.cn
+</code></p><br><br><h3>长缆科技异动拉升4.3%，高压电缆需求回暖</h3><br><p>端侧大模型普及，旗舰手机本地运行70B参数大模型。<br><br> | 来源：<code>https://kaiyuan-sports-pro.com.cn
+</code></p><br><br><h3>头部机构组团到访冷链物流标的，生鲜配送网络覆盖披露</h3><br><p>全国羽毛球业余赛参赛人数破50万，民间高手层出不穷。<br><br> | 来源：<code>https://kaiyuan-tiyu.com.cn
+</code></p><br><br><h3>保利发展涨超3.9%，央企地产销售数据回暖</h3><br><p>紫光国微特种芯片高增，单季业绩预告超预期。<br><br> | 来源：<code>https://kaiyun-access-pro.com.cn
+</code></p><br><br><h3>国产纪录片全网播放量突破150亿次，自然人文题材广受好评</h3><br><p>北向资金连续5日加仓贵州茅台，持仓占比创历史新高。<br><br> | 来源：<code>https://kaiyun-com-go.com.cn
+</code></p><br><br><h3>国内宠物友好景区破千家，携宠游订单同比增长180%</h3><br><p>外资资管连续加仓光伏N型电池标的，近3月持仓占比提升至8%。<br><br> | 来源：<code>https://kaiyun-com-hq.com.cn
+</code></p><br><br><h3>基金公司集体到访液冷技术龙头，AI数据中心液冷订单爆发</h3><br><p>贵州暑期游订单破4000万，“村超”带动全县文旅收入翻倍。<br><br> | 来源：<code>https://kaiyun-com-hub.com.cn
+</code></p><br><br><h3>保利发展土储优势：核心城市优质土储的长期价值释放</h3><br><p>北向资金连续调研后举牌智能电网标的，外资持续流入。<br><br> | 来源：<code>https://kaiyun-com-pro.com.cn
+</code></p><br><br><h3>实控人承诺12个月内不减持智慧矿山标的，稳定市场预期</h3><br><p>全国体育消费规模上半年突破8000亿元，运动装备销量暴涨。<br><br> | 来源：<code>https://kaiyun-com-site.com.cn
+</code></p><br><br><h3>实控人兜底式增持中药配方颗粒标的，员工参与比例超85%</h3><br><p>广汽集团埃安盈利转正，前三季度业绩预增超45%。<br><br> | 来源：<code>https://kaiyun-con-vip.com.cn
+</code></p><br><br><h3>福州三坊七巷暑期客流超1500万，闽派文旅产品热销</h3><br><p>贵州茅台站稳1700元关口，白酒板块估值修复开启。<br><br> | 来源：<code>https://kaiyun-con-web.com.cn
+</code></p><br><br><h3>涪陵榨菜异动拉升3.8%，产品提价传导顺利</h3><br><p>全国国家森林公园数量增至1000个，生态旅游蓬勃发展。<br><br> | 来源：<code>https://kaiyun-core-pro.com.cn
+</code></p><br><br><h3>海天味业调味品渠道优势：国内调味品龙头的下沉网络</h3><br><p>产业资本集中增持锂电铜箔龙头，极薄铜箔技术获资本布局。<br><br> | 来源：<code>https://kaiyun-entry-go.com.cn
+</code></p><br><br><h3>箱板纸价格上涨5%，包装产业链盈利改善</h3><br><p>地方国资战略入股种业龙头，助力生物育种商业化落地。<br><br> | 来源：<code>https://kaiyun-entry-pro.com.cn
