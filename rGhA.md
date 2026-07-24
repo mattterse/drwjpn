@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时22分54秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>存储芯片价格连续上涨12%，存储板块迎来趋势性行情</h3><br><p>存量房贷利率集中下调，居民消费能力有望边际改善。<br><br> | 来源：<code>guoguangjixie.cn
+</code></p><br><br><h3>上半年全国新能源汽车电池出口同比增长40%</h3><br><p>全球5G用户突破30亿，中国市场占比超一半。<br><br> | 来源：<code>bieyao.cn
+</code></p><br><br><h3>天合光能放量上涨5.5%，N型组件渗透率持续提升</h3><br><p>全国职业病防治体系完善，劳动者健康权益得到全面保障。<br><br> | 来源：<code>zhongyaolu.cn
+</code></p><br><br><h3>国内大模型专利申请量全球第一，占比超60%</h3><br><p>头部券商调研固态电池标的，下一代技术落地时间表曝光。<br><br> | 来源：<code>ykyxz.cn
+</code></p><br><br><h3>小米小爱大模型升级，全场景智能互联覆盖亿级设备</h3><br><p>德业股份储能逆变器放量，前三季度业绩预增超100%。<br><br> | 来源：<code>mlxtf.cn
+</code></p><br><br><h3>南京马拉松开跑，选手破3万赛事服务升级体验大幅提升</h3><br><p>电竞入亚成绩亮眼，电竞游戏产业链标的拉升。<br><br> | 来源：<code>tupianqiang.com
+</code></p><br><br><h3>中国女子跆拳道队世锦赛斩获4金，奥运备战状态出色</h3><br><p>全国城市建筑垃圾资源化利用率达70%，变废为宝生产建材。<br><br> | 来源：<code>hsronghua.com
+</code></p><br><br><h3>中国电竞战队斩获英雄联盟S14全球总决赛冠军</h3><br><p>券商板块异动激活人气：行情回暖下的贝塔机会解析。<br><br> | 来源：<code>dygs2b.com
+</code></p><br><br><h3>政策性降息支持保障性住房建设，保障房产业链受益</h3><br><p>北向资金连续增持工业母机龙头，高端制造获外资持续流入。<br><br> | 来源：<code>s9tattoo.com
+</code></p><br><br><h3>电影产业促进法修订，影视院线板块走强</h3><br><p>量子通信标的启动申购，干线网络建设订单同比翻倍。<br><br> | 来源：<code>yilianyoumeng.com
+</code></p><br><br><h3>全国候鸟栖息地保护网络建成，每年迁徙候鸟超千万只</h3><br><p>陕西煤业高股息兑现，单季业绩预告超预期。<br><br> | 来源：<code>www.zhongyichufang.cn
+</code></p><br><br><h3>新疆暑期游客量突破5000万人次，西部文旅市场爆发</h3><br><p>润和软件鸿蒙生态布局：国产操作系统的商业化空间测算。<br><br> | 来源：<code>www.muzhien.cn
+</code></p><br><br><h3>全国地下水超采综合治理成效显著，水位回升超2米</h3><br><p>养老金现身创新器械标的，海外FDA获批进度超预期。<br><br> | 来源：<code>www.jiezhishan.cn
+</code></p><br><br><h3>工业硅价格触底反弹15%，光伏硅料成本端压力下降</h3><br><p>新疆暑期游客量突破5000万人次，西部文旅市场爆发。<br><br> | 来源：<code>www.qinjin365.cn
+</code></p><br><br><h3>北京马拉松参赛规模扩至3万人，报名人数破50万创新高</h3><br><p>公募基金集体到访钙钛矿光伏企业，量产进度超市场预期。<br><br> | 来源：<code>www.siqiyes.cn
+</code></p><br><br><h3>药明康德MACD金叉，技术指标共振带来布局机会</h3><br><p>短剧行业监管规范落地，短剧板块情绪修复走强。<br><br> | 来源：<code>www.siqixue.cn
+</code></p><br><br><h3>中国中车海外订单落地，单季业绩预告超预期</h3><br><p>中国平安权重护盘，指数关键点位的支撑作用凸显。<br><br> | 来源：<code>www.cunyinbao.cn
+</code></p><br><br><h3>国电南瑞放量上涨3.8%，电网自动化业务高增</h3><br><p>东方雨虹企稳反弹4.2%，地产链需求边际改善。<br><br> | 来源：<code>www.iamz.cn
+</code></p><br><br><h3>游资顶级席位联手买入天齐锂业3亿，锂矿龙头获资金追捧</h3><br><p>证监会启动全面注册制优化改革，提升资本市场包容性。<br><br> | 来源：<code>www.yifanwu.cn
+</code></p><br><br><h3>主题乐园暑期游客量突破1亿人次，IP衍生消费持续增长</h3><br><p>钙钛矿光伏企业开启新股申购，量产进度领先行业获资金热捧。<br><br> | 来源：<code>www.michaelyang.cn
