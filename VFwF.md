@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时08分20秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>新能源汽车换电模式推广政策，换电产业链拉升</h3><br><p>不要盲目跟风炒热点：大部分追高的资金，最后都会成为接盘侠。<br><br> | 来源：<code>https://zh-yazhoujingpin.com.cn
+</code></p><br><br><h3>全国居民健康素养水平提升至32%，健康中国行动成效显著</h3><br><p>中国男子网球选手闯入ATP巡回赛决赛，创历史最佳排名。<br><br> | 来源：<code>https://zh-yazhoutiantang.com.cn
+</code></p><br><br><h3>大湾区推出100条跨境文旅线路，港澳居民赴内地游热度飙升</h3><br><p>料酒价格上涨4%，调味品细分板块迎来行情。<br><br> | 来源：<code>https://zh-yin.com.cn
+</code></p><br><br><h3>产业基金大手笔增持国产EDA企业，助力核心技术研发突破</h3><br><p>全国碳市场覆盖行业扩围至8个，交易活跃度大幅提升。<br><br> | 来源：<code>https://zh-yinghuashipin.com.cn
+</code></p><br><br><h3>定向降息支持制造业高端化，工业母机板块获定向利好</h3><br><p>自驾游市场上半年订单同比增长55%，房车旅行成为新选择。<br><br> | 来源：<code>https://zh-yinluan.com.cn
+</code></p><br><br><h3>社保基金新进汽车座椅龙头，布局汽车轻量化赛道</h3><br><p>全国石漠化土地面积持续缩减，治理率超60%。<br><br> | 来源：<code>https://zh-yiqicao.com.cn
+</code></p><br><br><h3>保险资管举牌工业软件龙头，研发设计软件国产替代获重仓</h3><br><p>降准释放长期资金支持基建，建筑板块迎来估值修复。<br><br> | 来源：<code>https://zh-youyou.com.cn
+</code></p><br><br><h3>公募基金集中调研IDC龙头，AI算力上架率创历史新高</h3><br><p>中国女子柔道队世锦赛斩获2金，奥运备战扎实推进。<br><br> | 来源：<code>https://zh-yuputuan.com.cn
+</code></p><br><br><h3>北向资金连续增持工业母机龙头，高端制造获外资持续流入</h3><br><p>长白山暑期避暑游热度高，日均接待游客超2万人次。<br><br> | 来源：<code>https://zh-zuoai.com.cn
+</code></p><br><br><h3>硅片价格单月上涨5%，光伏制造环节盈利边际改善</h3><br><p>中国男子射箭队世锦赛团体夺冠，打破韩国长期垄断。<br><br> | 来源：<code>https://zhang-ri-guangyin.com.cn
+</code></p><br><br><h3>产业资本集中增持元宇宙内容龙头，布局线下体验店扩张</h3><br><p>中国棒球队首次晋级世界杯决赛圈，棒球运动迎来新发展。<br><br> | 来源：<code>https://zhangbaizhiyanzhaomen.net.cn
+</code></p><br><br><h3>存量房贷利率批量下调，银行板块短期冲击可控</h3><br><p>福建高速异动拉升2.2%，海西地区车流量回暖。<br><br> | 来源：<code>https://zhaoyangshui.com.cn
+</code></p><br><br><h3>保险资管举牌绿电运营标的，长期配置价值获机构认可</h3><br><p>养老金现身创新器械标的，海外FDA获批进度超预期。<br><br> | 来源：<code>https://zhengtaimanhua.com.cn
+</code></p><br><br><h3>全国生态保护红线划定完成，覆盖超三分之一陆域面积</h3><br><p>医美监管政策优化，医美消费标的全线拉升。<br><br> | 来源：<code>https://zhengtu-guoji-app.com
+</code></p><br><br><h3>外资单日扫货招商银行10亿，银行龙头外资持仓稳步提升</h3><br><p>美联储第三次降息落地，全球风险偏好显著提升。<br><br> | 来源：<code>https://zhengtu-guoji-entry.com
+</code></p><br><br><h3>首套房贷款利率动态调整，核心城市刚需购房成本创新低</h3><br><p>全国200城启动夜间消费节，夜间经济规模突破15万亿。<br><br> | 来源：<code>https://zhengtu-guoji.com.cn
+</code></p><br><br><h3>QFII大幅加仓预制菜龙头，B端渠道扩张获海外机构看好</h3><br><p>保险资管扎堆调研机器人减速器标的，产能释放进度披露。<br><br> | 来源：<code>https://zhenren-sports-hub.com.cn
+</code></p><br><br><h3>全国羽毛球业余赛参赛人数破50万，民间高手层出不穷</h3><br><p>小鹏汽车异动拉升9.2%，新车型交付量超预期。<br><br> | 来源：<code>https://zhibo-zuoai.com.cn
+</code></p><br><br><h3>三元正极材料价格上调6%，锂电材料产业链景气回升</h3><br><p>中国平安综合金融版图：保险龙头的转型进展与空间。<br><br> | 来源：<code>https://zhiguangzaixian.org.cn
+</code></p><br><br><h3>全球区块链产业规模突破万亿美元，Web3.0应用落地加速</h3><br><p>基金公司集体到访氢能龙头，燃料电池车推广进度超预期。<br><br> | 来源：<code>https://zhiguangzaixianguankan.org.cn
