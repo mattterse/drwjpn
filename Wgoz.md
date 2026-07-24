@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时08分10秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>央行下调MLF利率10BP，货币政策宽松力度加大</h3><br><p>中德经贸论坛举办，双方达成百项合作协议。<br><br> | 来源：<code>https://91-n.cn
+</code></p><br><br><h3>保险资管举牌绿电运营标的，长期配置价值获机构认可</h3><br><p>游资顶级席位打板北方华创2.1亿，半导体设备标的获热炒。<br><br> | 来源：<code>https://91-n.com.cn
+</code></p><br><br><h3>隆基绿能成本优势解析：光伏龙头如何持续领跑行业</h3><br><p>头部机构组团到访创新药龙头，核心管线临床三期数据披露。<br><br> | 来源：<code>https://91-shipinwang.com.cn
+</code></p><br><br><h3>大湾区推出100条跨境文旅线路，港澳居民赴内地游热度飙升</h3><br><p>海康威视涨超4.7%，AI安防业务收入增速回升。<br><br> | 来源：<code>https://91-shipinwangzhan.com.cn
+</code></p><br><br><h3>北向资金单日扫货贵州茅台8亿，外资龙头标的持仓提升</h3><br><p>沪股通席位单日买入中国中冶5300万，冶金工程标的增持。<br><br> | 来源：<code>https://91-shipinzaixianguankan.com.cn
+</code></p><br><br><h3>中国女子赛艇队世锦赛斩获2金，奥运备战状态火热</h3><br><p>工业金属集体上涨，有色板块迎来全面行情催化。<br><br> | 来源：<code>https://91-tv.com.cn
+</code></p><br><br><h3>调味品开启集体涨价，食品板块盈利迎来修复</h3><br><p>国内政策性降息落地，宽信用进程加速推进。<br><br> | 来源：<code>https://91-wang.com.cn
+</code></p><br><br><h3>基金公司集体到访氢能储运龙头，高压储氢瓶订单爆发</h3><br><p>人形机器人核心标的启动申购，发行价对应估值具备吸引力。<br><br> | 来源：<code>https://91-www.cn
+</code></p><br><br><h3>北向资金连续增持液冷技术龙头，AI数据中心需求获外资加仓</h3><br><p>机构席位联手买入三一重工3亿，工程机械龙头获资金布局。<br><br> | 来源：<code>https://91-zaixianguankan.com.cn
+</code></p><br><br><h3>外资机构集中调研短视频出海标的，海外用户规模破亿</h3><br><p>一带一路十周年峰会召开，中字头基建标的拉升。<br><br> | 来源：<code>https://9170-guanfang-jinsha.com
+</code></p><br><br><h3>锂价连续反弹三个月，锂矿板块集体走强</h3><br><p>全面降准叠加定向降息，宽货币向宽信用传导加速。<br><br> | 来源：<code>https://9170-jinsha-official.com
+</code></p><br><br><h3>百亿私募组团调研6G通信企业，技术试验进度超市场预期</h3><br><p>智飞生物异动拉升4.9%，疫苗产品批签发量回升。<br><br> | 来源：<code>https://9170-mobile-login.com
+</code></p><br><br><h3>华域汽车汽车零部件平台：国内汽车零部件龙头的价值</h3><br><p>降准定向支持科技创新，科技成长板块获流动性利好。<br><br> | 来源：<code>https://9170-sands-official.com
+</code></p><br><br><h3>海缆价格上调5%，海缆龙头订单盈利弹性提升</h3><br><p>国电南瑞电网自动化高增，单季业绩预告超预期。<br><br> | 来源：<code>https://91cangku.cn
+</code></p><br><br><h3>韦尔股份异动拉升5.1%，CIS芯片需求回暖</h3><br><p>高管团队集体增持工业AI龙头，合计增持金额超2.3亿。<br><br> | 来源：<code>https://91ci-yuan.com.cn
+</code></p><br><br><h3>存储芯片价格连续上涨12%，存储板块迎来趋势性行情</h3><br><p>中国赛艇队奥运会夺得2金，水上项目实现历史性跨越。<br><br> | 来源：<code>https://91ciyuan.com.cn
+</code></p><br><br><h3>社保基金新进锂电回收龙头，布局循环经济高景气赛道</h3><br><p>中国五子棋队世锦赛包揽金牌，智力运动版图持续扩大。<br><br> | 来源：<code>https://91ciyuanguanwangrukou.com.cn
+</code></p><br><br><h3>全球可再生能源投资首次超过化石能源，能源转型拐点到来</h3><br><p>招商银行零售银行优势：国内零售银行龙头的经营质量。<br><br> | 来源：<code>https://91cncom.cn
+</code></p><br><br><h3>全国乡村旅游重点村超千家，带动千万农民家门口就业</h3><br><p>数字人民币试点扩容，数字人民币产业链走强。<br><br> | 来源：<code>https://91cncom.com.cn
+</code></p><br><br><h3>天赐材料异动拉升4.9%，电解液龙头成本优势凸显</h3><br><p>外资持续流入亿纬锂能，储能龙头外资持仓占比突破4%。<br><br> | 来源：<code>https://91com.com.cn
