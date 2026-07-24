@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分16秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>浪潮信息高位震荡，算力主线的分歧与机会解析</h3><br><p>隔膜价格小幅上涨3%，隔膜龙头盈利迎来修复。<br><br> | 来源：<code>https://xingfubao.net.cn
+</code></p><br><br><h3>全国房地产开发投资降幅收窄，市场预期逐步企稳</h3><br><p>恒瑞医药研发管线复盘：从仿制药龙头到创新药巨头的蜕变。<br><br> | 来源：<code>https://xingfubaoliulianshipin.cn
+</code></p><br><br><h3>三安光电化合物半导体布局：LED+碳化硅的长期空间</h3><br><p>草原生态保护政策，草牧业板块全线拉升。<br><br> | 来源：<code>https://xingfubaoxiazai.cn
+</code></p><br><br><h3>养老金新进车载芯片龙头，布局车规级半导体赛道</h3><br><p>中天科技海缆+储能协同：多元化能源企业的成长逻辑。<br><br> | 来源：<code>https://xingfudaohang.cn
+</code></p><br><br><h3>派能科技涨超7.5%，户用储能电池订单饱满</h3><br><p>通用人工智能创新平台落地，大模型标的拉升。<br><br> | 来源：<code>https://xingfushedaohang.cn
+</code></p><br><br><h3>亿纬锂能放量上涨6.4%，储能电池出货量翻倍</h3><br><p>碳化硅衬底标的登陆科创板，6英寸衬底产能全球领先。<br><br> | 来源：<code>https://xingkong-wuxian.com.cn
+</code></p><br><br><h3>储能装机强制配比政策升级，储能产业链标的拉升</h3><br><p>亿纬锂能涨超6%，储能业务新增订单持续落地。<br><br> | 来源：<code>https://xingkongchuanmeixianglingdezuopin.com.cn
+</code></p><br><br><h3>中国霹雳舞队奥运会夺得金牌，新兴街舞项目站上世界之巅</h3><br><p>数字中国建设新规划，数字经济标的集体异动。<br><br> | 来源：<code>https://xingkongchuanmeizaixianguankan.com.cn
+</code></p><br><br><h3>国电南瑞电力数字化：新型电力系统建设下的长期受益</h3><br><p>零跑汽车高性价比路线：下沉市场新能源车企的成长逻辑。<br><br> | 来源：<code>https://xingkongchuanmeizaixianmianfeiguankan.com.cn
+</code></p><br><br><h3>海康威视企稳回升，AI安防赛道需求逐步回暖</h3><br><p>长缆科技异动拉升4.3%，高压电缆需求回暖。<br><br> | 来源：<code>https://xingkongqiutan.com.cn
+</code></p><br><br><h3>外资资管连续加仓CXO龙头，近3月持仓占比提升至7%</h3><br><p>东方盛虹放量上涨3.6%，EVA树脂需求持续向好。<br><br> | 来源：<code>https://xingkongwuxianchuanmei.com.cn
+</code></p><br><br><h3>全国淮河生态经济带建设推进，流域水质优良比例达95%</h3><br><p>宝钢股份企稳回升，钢铁行业盈利预期边际改善。<br><br> | 来源：<code>https://xingkongying-shi.com.cn
+</code></p><br><br><h3>全国扬子鳄野生种群数量突破2万只，野外放归成效显著</h3><br><p>上半年全国风电装机新增超3000万千瓦，清洁能源建设提速。<br><br> | 来源：<code>https://xingkongyingyuanzaixianguankanmianfei.com.cn
+</code></p><br><br><h3>降准释放资金超万亿，流动性宽松支撑A股估值抬升</h3><br><p>中国铁建全球工程布局：轨交基建龙头的海外市场拓展。<br><br> | 来源：<code>https://xingshi-zixunyuan.com.cn
+</code></p><br><br><h3>糖果产品价格上调6%，休闲食品全产业链景气回升</h3><br><p>人民币国际化进程加速，跨境贸易人民币结算占比提升至38%。<br><br> | 来源：<code>https://xiuxiu-dongman.com.cn
+</code></p><br><br><h3>调味品开启集体涨价，食品板块盈利迎来修复</h3><br><p>产业资本连续3周增持存储芯片龙头，累计增持金额超8亿。<br><br> | 来源：<code>https://xiuxiu-shipin-zh.com.cn
+</code></p><br><br><h3>中科院紫东太初大模型2.0发布，全模态能力国际领先</h3><br><p>国家版本馆全部建成开放，典藏中华文脉珍贵资源。<br><br> | 来源：<code>https://xiuxiu-shipin.com.cn
+</code></p><br><br><h3>全国统一大市场建设取得阶段性进展，流通成本下降15%</h3><br><p>虾产品价格上涨15%，水产细分板块盈利弹性释放。<br><br> | 来源：<code>https://xiuxiushipin.org.cn
+</code></p><br><br><h3>吉林高速异动拉升1.7%，区域路网业务逐步复苏</h3><br><p>人工智能产业标准落地，AI合规标的全线异动。<br><br> | 来源：<code>https://xiuxiushipinwang.com.cn
+</code></p><br><br><h3>大金重工放量上涨5.7%，风电塔筒全球份额领先</h3><br><p>央行表态加大逆周期调节，后续仍有降准降息空间。<br><br> | 来源：<code>https://xiuxiuwuyefulimianfeishipin.cn
