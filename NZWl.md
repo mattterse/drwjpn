@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分18秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>10年期国债收益率下行，保险板块配置压力边际缓解</h3><br><p>蚝油产品价格上调3%，调味品全产业链盈利优化。<br><br> | 来源：<code>https://91n-com.com.cn
+</code></p><br><br><h3>长江流域水质优良断面比例达99%，生态环境持续改善</h3><br><p>云南泼水节暑期活动重启，单日参与游客突破50万人次。<br><br> | 来源：<code>https://91ncn.com.cn
+</code></p><br><br><h3>体育赛事与全民健身（100条）</h3><br><p>赣锋锂业技术储备：固态电池商业化的领先优势。<br><br> | 来源：<code>https://91ncom.com.cn
+</code></p><br><br><h3>AI智能客服替代率超80%，企业客服成本下降60%</h3><br><p>吉林高速异动拉升1.7%，区域路网业务逐步复苏。<br><br> | 来源：<code>https://91ncon.com.cn
+</code></p><br><br><h3>光伏组件出口创历史新高，光伏海外链标的走强</h3><br><p>美联储降息后美元指数走弱，大宗商品价格迎来反弹。<br><br> | 来源：<code>https://91nwang.cn
+</code></p><br><br><h3>机构资金联手买入洽洽食品5800万，食品龙头获机构抱团</h3><br><p>全球教育科技市场规模突破4000亿美元，线上教育持续普及。<br><br> | 来源：<code>https://91piankan.cn
+</code></p><br><br><h3>大模型在餐饮领域应用，AI智能配菜优化食材利用率</h3><br><p>上合组织峰会召开，新增3个成员国组织规模进一步扩大。<br><br> | 来源：<code>https://91pro.com.cn
+</code></p><br><br><h3>央行表态不搞"大水漫灌"，精准降息支持实体经济重点领域</h3><br><p>北京马拉松参赛规模扩至3万人，报名人数破50万创新高。<br><br> | 来源：<code>https://91shi.cn
+</code></p><br><br><h3>百亿私募组团调研碳纤维企业，风电领域应用占比突破60%</h3><br><p>全国戏曲进乡村演出超百万场，传统艺术扎根基层。<br><br> | 来源：<code>https://91shipinwang.cn
+</code></p><br><br><h3>上海自贸区扩区方案落地，引领更高水平对外开放</h3><br><p>2026年文旅市场全面繁荣，文化自信融入大众日常生活。<br><br> | 来源：<code>https://91wangguanwang.com.cn
+</code></p><br><br><h3>高管团队集体增持宠物食品龙头，合计增持超6500万</h3><br><p>海外资管组团调研智能驾驶标的，城市NOA落地节奏披露。<br><br> | 来源：<code>https://91wangyeliulanqi.cn
+</code></p><br><br><h3>新疆交建新疆基建项目爆发，单季业绩预告超预期</h3><br><p>QFII集中调研乳制品龙头，高端产品占比提升至45%。<br><br> | 来源：<code>https://91wangzhandaquan.cn
+</code></p><br><br><h3>济南趵突泉暑期“趵突腾空”景观持续，日均客流超10万</h3><br><p>万科A异动拉升3.6%，核心城市楼盘去化率改善。<br><br> | 来源：<code>https://91xin.com.cn
+</code></p><br><br><h3>公募基金发行回暖，基金重仓标的集体拉升</h3><br><p>全球循环经济市场规模突破5万亿美元，资源利用效率提升。<br><br> | 来源：<code>https://91zaixianguankan.cn
+</code></p><br><br><h3>WTT新乡世界杯，孙颖莎卫冕女单冠军实现赛季大满贯</h3><br><p>逆向投资不是盲目抄底：在行业逻辑反转时布局，胜率才最高。<br><br> | 来源：<code>https://9570-jinguan-zhijia.com
+</code></p><br><br><h3>全国首套房住房贷款"认房不认贷"政策全面落地</h3><br><p>全球航运市场回暖，集装箱运价指数回升至合理区间。<br><br> | 来源：<code>https://aaawang.com.cn
+</code></p><br><br><h3>外资机构席位净买入中国电建1.1亿，绿电运营龙头获外资加仓</h3><br><p>东方电气放量上涨4.1%，风电设备订单饱满。<br><br> | 来源：<code>https://ai-ai-shipin-wangzhan.com.cn
+</code></p><br><br><h3>腾讯混元大模型企业服务升级，助力政务、金融行业数字化</h3><br><p>纯碱价格连续上涨12%，玻璃产业链成本端压力边际缓解。<br><br> | 来源：<code>https://ai-aishipin.com.cn
+</code></p><br><br><h3>重庆路桥异动拉升2.4%，区域路桥业务盈利稳定</h3><br><p>海尔智家稳步上行，白电行业格局持续优化。<br><br> | 来源：<code>https://ai-fengyue.com.cn
+</code></p><br><br><h3>江特电机触底反弹5.9%，锂盐价格企稳回升</h3><br><p>钙钛矿光伏企业开启新股申购，量产进度领先行业获资金热捧。<br><br> | 来源：<code>https://ai-weinai.com.cn
