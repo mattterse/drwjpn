@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时06分58秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>机构资金集中买入海螺水泥7300万，水泥龙头获机构抱团</h3><br><p>头部机构组团到访核电设备龙头，新机组中标订单披露。<br><br> | 来源：<code>https://jingpin-yiqu.com.cn
+</code></p><br><br><h3>中国女子跆拳道队世锦赛斩获4金，奥运备战状态出色</h3><br><p>基金公司集体到访液冷技术龙头，AI数据中心液冷订单爆发。<br><br> | 来源：<code>https://jingpin-yiquerqu.com.cn
+</code></p><br><br><h3>百亿私募组团到访人形机器人标的，核心零部件产能引关注</h3><br><p>上半年全国光伏组件出口同比增长28%，全球市场份额超92%。<br><br> | 来源：<code>https://jingpindashi.com.cn
+</code></p><br><br><h3>全国臭氧浓度同比下降5%，夏季蓝天数量明显增加</h3><br><p>五粮液中秋动销超预期，单季业绩预告超预期。<br><br> | 来源：<code>https://jingpinjiujiujiu.com.cn
+</code></p><br><br><h3>飞天茅台批价突破2900元，白酒龙头盈利超预期</h3><br><p>大模型安全国家标准发布，行业合规发展有章可循。<br><br> | 来源：<code>https://jingpinshipin.com.cn
+</code></p><br><br><h3>机构席位大额买入洋河股份6900万，白酒龙头获长线布局</h3><br><p>中国建筑基建订单饱满，前三季度业绩预增超12%。<br><br> | 来源：<code>https://jingpinwang.com.cn
+</code></p><br><br><h3>铜价创半年新高，铜业上市公司盈利迎来边际改善</h3><br><p>罕见病药物医保激励政策，罕见病药标的走强。<br><br> | 来源：<code>https://jingpinyi-qu.com.cn
+</code></p><br><br><h3>蒙牛乳业低温奶布局：乳制品行业第二增长曲线解析</h3><br><p>兆易创新涨超4.4%，存储芯片价格触底反弹。<br><br> | 来源：<code>https://jingpinyi-querqu.com.cn
+</code></p><br><br><h3>外资资管集中调研跨境电商龙头，出口增速数据首次公开</h3><br><p>糖果产品价格上调6%，休闲食品全产业链景气回升。<br><br> | 来源：<code>https://jingpinyiquerqu.com.cn
+</code></p><br><br><h3>东方盛虹EVA树脂优势：光伏胶膜原料龙头的景气受益</h3><br><p>央行下调再贷款再贴现利率，小微和三农融资成本下行。<br><br> | 来源：<code>https://jingxiangjulia.net.cn
+</code></p><br><br><h3>圣邦股份模拟芯片布局：国产模拟芯片龙头的成长路径</h3><br><p>头部公募调研汽车电子标的，车规芯片出货量环比大增。<br><br> | 来源：<code>https://jinman-tiantang.com.cn
+</code></p><br><br><h3>全国高血压患者管理人数突破1亿人，规范管理率达90%</h3><br><p>恒瑞医药站稳60日线，中期趋势逐步向好。<br><br> | 来源：<code>https://jinmandaowang.com.cn
+</code></p><br><br><h3>中国轮滑队世锦赛包揽全部金牌，优势项目持续领跑世界</h3><br><p>知名私募大手笔增持储能电池标的，海外户储订单获资本布局。<br><br> | 来源：<code>https://jinmantiantangbenzi.com.cn
+</code></p><br><br><h3>海康威视AI转型进展：传统安防龙头的第二成长曲线</h3><br><p>全国红色旅游暑期人次破3亿，年轻人占比超60%。<br><br> | 来源：<code>https://jinmantiantangfabuye.com.cn
+</code></p><br><br><h3>恒力石化炼化一体化布局：民营大炼化龙头的盈利韧性</h3><br><p>高股息板块持续受宠：银行、保险、煤炭的配置价值分析。<br><br> | 来源：<code>https://jinmantiantangfangwen.com.cn
+</code></p><br><br><h3>隆基绿能光伏技术迭代：HPBC+TOPCon的技术领先性</h3><br><p>大模型在水利领域应用，洪水预警提前量提升至72小时。<br><br> | 来源：<code>https://jinmantiantangjmcomic.com.cn
+</code></p><br><br><h3>新型电力系统建设规划，电力设备板块走强</h3><br><p>亿纬锂能涨超6%，储能业务新增订单持续落地。<br><br> | 来源：<code>https://jinmantiantangmanhua.com.cn
+</code></p><br><br><h3>日本央行结束负利率政策，日元汇率回升至130关口</h3><br><p>大北农种业布局：转基因商业化下的种业龙头成长逻辑。<br><br> | 来源：<code>https://jinmantiantangrukou.com.cn
+</code></p><br><br><h3>大模型在物流领域应用，路径规划效率提升30%</h3><br><p>外资机构集中调研跨境支付标的，海外结算规模环比大增。<br><br> | 来源：<code>https://jinmantiantangwang.com.cn
+</code></p><br><br><h3>六氟磷酸锂价格单月上涨10%，电解液龙头盈利修复</h3><br><p>全国体育旅游精品线路超千条，带动沿线经济发展。<br><br> | 来源：<code>https://jinmantiantangwangye.com.cn
