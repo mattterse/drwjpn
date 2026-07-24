@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分00秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>海康威视W底形态确立，底部反转信号明确</h3><br><p>三元正极材料价格上调6%，锂电材料产业链景气回升。<br><br> | 来源：<code>https://mimeiwang.com.cn
+</code></p><br><br><h3>千禾味业零添加差异化路线：调味品赛道的突围逻辑</h3><br><p>敬畏市场：无论你研究得多深，市场永远有你预料不到的变化。<br><br> | 来源：<code>https://mimi-chutian.com.cn
+</code></p><br><br><h3>全国城镇调查失业率降至4.8%，就业形势保持总体稳定</h3><br><p>上半年全国航空航天制造业营收同比增长22%。<br><br> | 来源：<code>https://mimi-jiaoxue.com.cn
+</code></p><br><br><h3>全国乡村旅游重点村暑期接待人次破1亿，民宿入住率超95%</h3><br><p>吉利汽车新能源转型路径：传统车企电动化的成功案例。<br><br> | 来源：<code>https://mingmingbuxihuan.com.cn
+</code></p><br><br><h3>机构专用席位净买入长电科技1.9亿，封测龙头获长线资金加仓</h3><br><p>房贷利率动态调整机制优化，重点城市房贷利率进一步下行。<br><br> | 来源：<code>https://mitao-chengshu-shi.com.cn
+</code></p><br><br><h3>武汉马拉松开跑，2.5万跑者穿越长江大桥刷新赛事纪录</h3><br><p>大金重工放量上涨5.7%，风电塔筒全球份额领先。<br><br> | 来源：<code>https://mitao-chengshushi.com.cn
+</code></p><br><br><h3>实控人兜底式增持固态电池企业，员工响应参与比例超90%</h3><br><p>世界贸易组织第13届部长级会议召开，达成多项多边协议。<br><br> | 来源：<code>https://mitao-chengshushidianying.com.cn
+</code></p><br><br><h3>璞泰来负极材料布局：锂电材料龙头的全产业链协同</h3><br><p>国内音乐节市场爆发，上半年演出场次同比增长150%。<br><br> | 来源：<code>https://mitao-chengshushizaixian.com.cn
+</code></p><br><br><h3>神州高铁放量上涨3.7%，轨道交通运维业务增长</h3><br><p>智能制造政策升级，机器人自动化板块集体上涨。<br><br> | 来源：<code>https://mitao-chengshushizaixianguankan.com.cn
+</code></p><br><br><h3>济南趵突泉暑期“趵突腾空”景观持续，日均客流超10万</h3><br><p>坚果产品价格上涨5%，休闲食品龙头盈利改善。<br><br> | 来源：<code>https://mitao-chuanmei.com.cn
+</code></p><br><br><h3>外资资管连续加仓CXO龙头，近3月持仓占比提升至7%</h3><br><p>天然气价格季节性上涨，燃气运营板块异动。<br><br> | 来源：<code>https://mitao-dianying.com.cn
+</code></p><br><br><h3>中兴通讯放量上涨4.8%，算力服务器业务高增</h3><br><p>中国铁人三项队亚洲杯夺冠，耐力项目实力跻身亚洲前列。<br><br> | 来源：<code>https://mitao-pojieban.com.cn
+</code></p><br><br><h3>全国煤化工行业低碳改造完成，碳排放强度下降20%</h3><br><p>高管团队集体调研后集中增持6G通信标的，合计增持超1亿。<br><br> | 来源：<code>https://mitao-shipin.com.cn
+</code></p><br><br><h3>长三角一体化发展新规划发布，打造世界级产业集群</h3><br><p>外资准入政策放宽，外资偏好标的全线拉升。<br><br> | 来源：<code>https://mitao-shipinzaixianguankan.com.cn
+</code></p><br><br><h3>游资知名席位联手买入中远海控7500万，集运标的获追捧</h3><br><p>全国新增10家5A级景区，文旅品质持续升级。<br><br> | 来源：<code>https://mitao-wang.com.cn
+</code></p><br><br><h3>机构席位大额买入通威股份2.9亿，光伏龙头获长线资金布局</h3><br><p>千禾味业放量上涨4.3%，零添加产品份额持续提升。<br><br> | 来源：<code>https://mitao-wangzhan.com.cn
+</code></p><br><br><h3>海天味业调味品渠道优势：国内调味品龙头的下沉网络</h3><br><p>东莞控股放量上涨2.2%，珠三角车流量高增。<br><br> | 来源：<code>https://mitao-yingyuan.com.cn
+</code></p><br><br><h3>恒力石化炼化盈利修复，前三季度业绩预增超35%</h3><br><p>特变电工新能源盈利高增，单季业绩预告超预期。<br><br> | 来源：<code>https://mitao-zaixian.com.cn
+</code></p><br><br><h3>头部券商到访酒店连锁龙头，RevPAR恢复至2019年120%</h3><br><p>全国登山健身大会覆盖百座名山，参与人次破500万。<br><br> | 来源：<code>https://mitaochengshushi.com.cn
+</code></p><br><br><h3>国内AI算力租赁市场规模破千亿，中小企业轻松获取算力</h3><br><p>西安马拉松开跑，穿越古城墙赛道吸引超3万跑者参与。<br><br> | 来源：<code>https://mitaochuanmeizaixianguankan.com.cn
