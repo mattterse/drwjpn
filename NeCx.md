@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时06分55秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>希腊经济强劲复苏，成为欧元区增长明星</h3><br><p>游戏大模型落地，AI实时生成游戏场景大幅降低开发成本。<br><br> | 来源：<code>https://chengrenzhibo.cn
+</code></p><br><br><h3>调味品开启集体涨价，食品板块盈利迎来修复</h3><br><p>思源电气涨超4.5%，电网设备出口数据亮眼。<br><br> | 来源：<code>https://chi-gua-hei-liao.com.cn
+</code></p><br><br><h3>地方国资战略入股种业龙头，助力生物育种商业化落地</h3><br><p>上海建工涨超2.6%，长三角基建订单回暖。<br><br> | 来源：<code>https://chi-gua-shipin.com.cn
+</code></p><br><br><h3>超170家机构到访PCB龙头，AI服务器板订单同比翻倍</h3><br><p>人民币汇率升值至6.7关口，造纸板块汇兑收益大幅增加。<br><br> | 来源：<code>https://chiguawang.org.cn
+</code></p><br><br><h3>QFII大幅加仓IDC龙头，海外资金看好AI算力需求爆发</h3><br><p>产业资本连续增持智能电网标的，特高压产业链获资本布局。<br><br> | 来源：<code>https://chong-tian.com.cn
+</code></p><br><br><h3>美联储降息25BP符合市场预期，全球股市迎来普涨行情</h3><br><p>AI办公软件渗透率超60%，成为职场人必备工具。<br><br> | 来源：<code>https://chongshengluolidao.com.cn
+</code></p><br><br><h3>机构资金集中买入科大讯飞7亿，AI龙头获机构抱团</h3><br><p>人民币国际化进程加速，跨境贸易人民币结算占比提升至38%。<br><br> | 来源：<code>https://chuanmei-zaixianguankan.com.cn
+</code></p><br><br><h3>QFII集中调研海上风电标的，深远海项目订单引热议</h3><br><p>机构席位大额买入德业股份5300万，储能龙头获长线布局。<br><br> | 来源：<code>https://chuanmei91.com.cn
+</code></p><br><br><h3>六氟磷酸锂价格单月上涨10%，电解液龙头盈利修复</h3><br><p>特变电工涨超3.3%，新能源业务盈利持续释放。<br><br> | 来源：<code>https://chuanmeimadou.cn
+</code></p><br><br><h3>西安大唐不夜城暑期日均客流超20万，沉浸式文旅成爆款</h3><br><p>牧原股份涨超4.7%，生猪价格周期拐点显现。<br><br> | 来源：<code>https://chuanmeizaixianguankan.com.cn
+</code></p><br><br><h3>蔚来汽车毛利率转正，单季业绩预告环比大幅改善</h3><br><p>全国文化产业园区超3000家，集聚效应带动创意产业发展。<br><br> | 来源：<code>https://chuniaoapp.cn
+</code></p><br><br><h3>中芯国际放量拉升7.3%，14nm产能利用率持续提升</h3><br><p>机构席位大额买入中国中铁6500万，基建龙头获长线布局。<br><br> | 来源：<code>https://chutianbenzi.com.cn
+</code></p><br><br><h3>全国船舶排放控制区扩大，海运污染减排成效突出</h3><br><p>保险资管扎堆调研CRO龙头，创新药管线临床数据披露。<br><br> | 来源：<code>https://chuyindao.com.cn
+</code></p><br><br><h3>广汽集团涨超4.8%，埃安品牌月销破5万</h3><br><p>双汇发展肉制品龙头优势：屠宰+肉制品的协同价值。<br><br> | 来源：<code>https://clshequ.cn
+</code></p><br><br><h3>老旧小区改造升级，家装家居标的全线拉升</h3><br><p>降准资金定向支持半导体产业，芯片板块获流动性利好。<br><br> | 来源：<code>https://clsq.cn
+</code></p><br><br><h3>卓胜微射频芯片积累：消费电子赛道的国产替代机会</h3><br><p>江铃汽车新能源轻卡高增，单季业绩预告超预期。<br><br> | 来源：<code>https://club91.cn
+</code></p><br><br><h3>基金公司集体到访消费电子龙头，苹果新品备货量曝光</h3><br><p>拓普集团护城河分析：汽车零部件平台型企业的长期价值。<br><br> | 来源：<code>https://cn-188-sports.com.cn
+</code></p><br><br><h3>全国登山健身大会覆盖百座名山，参与人次破500万</h3><br><p>全国碳捕集利用与封存项目年处理能力突破1500万吨。<br><br> | 来源：<code>https://cn-2026worldcup-buy.com
+</code></p><br><br><h3>头部券商到访汽车座椅龙头，新势力车企订单占比突破50%</h3><br><p>互联网平台经济政策回暖，中概股联动标的上涨。<br><br> | 来源：<code>https://cn-2026worldcup-official.com
+</code></p><br><br><h3>林业碳汇交易政策，林业运营标的全线异动</h3><br><p>上半年全国集成电路产量同比增长18%，产业链自主可控推进。<br><br> | 来源：<code>https://cn-9170-jinsha.com
