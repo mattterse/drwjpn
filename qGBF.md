@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时08分17秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>中国女子冰球队世锦赛升组，重返顶级赛事行列</h3><br><p>旅游服务质量提升政策，景区旅游板块走强。<br><br> | 来源：<code>https://ppkhz.cn
+</code></p><br><br><h3>纸价开启新一轮提价潮，造纸板块盈利迎来修复</h3><br><p>新能源汽车购置税减免延期，整车板块集体走强。<br><br> | 来源：<code>https://pro-anbo-sports.com.cn
+</code></p><br><br><h3>中国船舶造船订单交付，前三季度业绩预增超120%</h3><br><p>产业资本集中增持AI教育龙头，付费用户高增获资本布局。<br><br> | 来源：<code>https://pro-beibosports.com.cn
+</code></p><br><br><h3>南昌推出“红色夜校”文旅项目，夜间红色体验游受热捧</h3><br><p>头部券商到访调味品龙头，渠道库存去化周期数据披露。<br><br> | 来源：<code>https://pro-by-yundong.com.cn
+</code></p><br><br><h3>政策性银行加大降息力度，基建项目融资成本大幅下降</h3><br><p>苹果AI服务正式上线，苹果产业链标的集体反弹。<br><br> | 来源：<code>https://pro-jinbao-sports.com.cn
+</code></p><br><br><h3>北向资金大额扫货赣锋锂业2.6亿，锂矿龙头获外资流入</h3><br><p>吉利汽车放量上涨5.6%，新能源车型占比突破50%。<br><br> | 来源：<code>https://pro-js-tiyu.com.cn
+</code></p><br><br><h3>海大集团涨超3.5%，饲料业务市占率稳步提升</h3><br><p>京沪高铁涨超2.9%，暑运客流数据超预期。<br><br> | 来源：<code>https://pro-leisusports.com.cn
+</code></p><br><br><h3>一带一路订单释放：中字头基建的估值重塑空间解析</h3><br><p>保险资管扎堆调研煤炭智能化龙头，煤矿智能化改造渗透率。<br><br> | 来源：<code>https://pro-manguan-vip.com.cn
+</code></p><br><br><h3>5年期LPR下调带动居民购房意愿回升，地产销售边际改善</h3><br><p>杭州马拉松开跑，3.5万跑者体验钱塘江赛道。<br><br> | 来源：<code>https://pro-pingbosports.com.cn
+</code></p><br><br><h3>QFII大幅加仓光伏支架标的，跟踪支架海外渗透率提升获看好</h3><br><p>政策性降息支持保障性住房建设，保障房产业链受益。<br><br> | 来源：<code>https://pro-weide-sports.com.cn
+</code></p><br><br><h3>广州马拉松开跑，参赛选手破3万全马完赛率创新高</h3><br><p>温氏股份禽畜盈利双增，前三季度业绩预增超60%。<br><br> | 来源：<code>https://pro-xingkong-fun.com.cn
+</code></p><br><br><h3>北向资金连续调研后举牌智能电网标的，外资持续流入</h3><br><p>医美行业合规化政策，头部医美标的拉升。<br><br> | 来源：<code>https://pro-yameisports.com.cn
+</code></p><br><br><h3>东方盛虹放量上涨3.6%，EVA树脂需求持续向好</h3><br><p>端侧大模型普及，旗舰手机本地运行70B参数大模型。<br><br> | 来源：<code>https://pzhan-shipin.com.cn
+</code></p><br><br><h3>保险资管扎堆调研养老产业标的，养老社区入住率数据披露</h3><br><p>三一重工数字化转型：工程机械龙头的效率提升路径。<br><br> | 来源：<code>https://qiangjian-xinwen.com.cn
+</code></p><br><br><h3>通威股份全产业链成本控制：光伏硅料环节的盈利韧性</h3><br><p>全国桨板赛事超百场，水上运动参与人数破千万。<br><br> | 来源：<code>https://qidonghua.com.cn
+</code></p><br><br><h3>钠离子电池材料价格上涨8%，钠电池产业链盈利优化</h3><br><p>中国船舶涨超4.5%，造船行业订单持续饱满。<br><br> | 来源：<code>https://qiezi-shipin-wu.com.cn
+</code></p><br><br><h3>锦浪科技逆变器出口翻倍，前三季度业绩预增超90%</h3><br><p>大模型在农业病虫害防治领域应用，减少农药使用20%。<br><br> | 来源：<code>https://qiezi-shipin.cn
+</code></p><br><br><h3>实控人承诺12个月内不减持智慧矿山标的，稳定市场预期</h3><br><p>润和软件涨超7.2%，鸿蒙生态业务落地加速。<br><br> | 来源：<code>https://qiezishipinzaixianguankan.cn
+</code></p><br><br><h3>中国中车全球轨交布局：一带一路下的海外订单增长逻辑</h3><br><p>新能源整车板块集体反弹：谁是下一个领涨龙头。<br><br> | 来源：<code>https://qiezivideos.cn
+</code></p><br><br><h3>机构专用席位净买入智飞生物8300万，疫苗龙头获长线加仓</h3><br><p>国产历史剧细节考究，多部作品成为全网热议文化现象。<br><br> | 来源：<code>https://qingqingcao-shipin.com.cn
