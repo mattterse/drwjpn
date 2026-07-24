@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分28秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>润和软件涨超7.2%，鸿蒙生态业务落地加速</h3><br><p>机构+北向合力买入北方稀土2.7亿，稀土标的获资金布局。<br><br> | 来源：<code>https://sezhongseluntan.cn
+</code></p><br><br><h3>政策性降息支持保障性住房建设，保障房产业链受益</h3><br><p>沪硅产业涨超5.8%，12英寸硅片产能持续释放。<br><br> | 来源：<code>https://shang-yuan.com.cn
+</code></p><br><br><h3>10年期国债收益率下行，保险板块配置压力边际缓解</h3><br><p>明阳智能涨超4.8%，大兆瓦风机份额持续提升。<br><br> | 来源：<code>https://shankou-zhu-li.com.cn
+</code></p><br><br><h3>注册制全面落地，券商投行业务标的全线拉升</h3><br><p>全国首套房住房贷款"认房不认贷"政策全面落地。<br><br> | 来源：<code>https://shanliangdenumishu.com.cn
+</code></p><br><br><h3>全国地热能源开发利用规模突破5000万吨标准煤</h3><br><p>国际铜价持续上行，铜业板块标的全线异动。<br><br> | 来源：<code>https://shaofubaijie.com.cn
+</code></p><br><br><h3>长安汽车深蓝品牌定位：主流新能源市场的差异化竞争</h3><br><p>海外对冲基金组团调研预制菜龙头，B端渠道扩张节奏披露。<br><br> | 来源：<code>https://shengshi-ll-ios.com
+</code></p><br><br><h3>中国女子跆拳道队世锦赛斩获4金，奥运备战状态出色</h3><br><p>涪陵榨菜异动拉升3.8%，产品提价传导顺利。<br><br> | 来源：<code>https://shenshi-youxi.com.cn
+</code></p><br><br><h3>中国跳水队世锦赛包揽全部13金，延续梦之队统治力</h3><br><p>杭州亚运会一周年纪念活动举办，场馆全年接待健身人次破亿。<br><br> | 来源：<code>https://shenshimanhua.com.cn
+</code></p><br><br><h3>地震应急响应升级，灾后重建板块异动</h3><br><p>苏州马拉松开跑，3万跑者体验江南赛道赛事口碑持续提升。<br><br> | 来源：<code>https://shenshiyouxi.com.cn
+</code></p><br><br><h3>长白山暑期避暑游热度高，日均接待游客超2万人次</h3><br><p>人形机器人核心标的启动申购，发行价对应估值具备吸引力。<br><br> | 来源：<code>https://shenshiyouxidaohang.com.cn
+</code></p><br><br><h3>德国工业产出环比增长1.2%，制造业显现复苏迹象</h3><br><p>全国城市污水处理率达98%，污泥无害化处理率超90%。<br><br> | 来源：<code>https://shenshiyouxituijian.com.cn
+</code></p><br><br><h3>美联储连续第二次降息，北向资金单日净流入超百亿</h3><br><p>基金公司集体到访人形电机龙头，力矩电机产能释放数据。<br><br> | 来源：<code>https://shenshiyouxiwangzhan.com.cn
+</code></p><br><br><h3>中国藤球队世锦赛包揽金牌，传统优势项目持续巩固</h3><br><p>亿纬锂能多赛道布局：动力电池+储能双轮驱动成长。<br><br> | 来源：<code>https://shenye-manhua.com
+</code></p><br><br><h3>剧本杀门店超5万家，沉浸式文旅体验成为年轻消费热点</h3><br><p>全球储能市场规模突破500GWh，新型电力系统建设提速。<br><br> | 来源：<code>https://shequhaijiao.cn
+</code></p><br><br><h3>券商研究所扎堆调研车载雷达标的，激光雷达量产交付节奏</h3><br><p>润和软件涨超7.2%，鸿蒙生态业务落地加速。<br><br> | 来源：<code>https://shequhaijiao.com.cn
+</code></p><br><br><h3>中际旭创800G光模块放量，前三季度业绩预增130%</h3><br><p>储能电池价格小幅上涨3%，储能产业链价格体系企稳。<br><br> | 来源：<code>https://shijiebei-duqiu.com.cn
+</code></p><br><br><h3>平遥古城暑期游客量突破150万人次，晋商文化体验游火热</h3><br><p>全球生物医药市场规模突破1.8万亿美元，创新药研发加速。<br><br> | 来源：<code>https://shijiebei-mai-qiu.com.cn
+</code></p><br><br><h3>中国游泳队世锦赛斩获7金，打破3项世界纪录</h3><br><p>全球智能手机市场回暖，二季度出货量同比增长7%。<br><br> | 来源：<code>https://shiliushequ.cn
+</code></p><br><br><h3>人民币汇率升值叠加美联储降息，航空造纸板块集体异动</h3><br><p>华北高速涨超1.9%，京津冀路网业务稳健。<br><br> | 来源：<code>https://shinu.com.cn
+</code></p><br><br><h3>硅锰价格单月上涨9%，铁合金板块盈利改善</h3><br><p>通用人工智能创新平台落地，大模型标的拉升。<br><br> | 来源：<code>https://shipin-zaixianguankan.com.cn
