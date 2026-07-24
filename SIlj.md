@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时06分51秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>百亿私募组团调研6G通信企业，技术试验进度超市场预期</h3><br><p>硅锰价格单月上涨9%，铁合金板块盈利改善。<br><br> | 来源：<code>https://yaojingshipinyumingrukou.com.cn
+</code></p><br><br><h3>一带一路十周年峰会召开，中字头基建标的拉升</h3><br><p>小米小爱大模型升级，全场景智能互联覆盖亿级设备。<br><br> | 来源：<code>https://yaojiujiuai.com.cn
+</code></p><br><br><h3>千兆城市建设全覆盖，光通信板块走强</h3><br><p>AI智能客服替代率超80%，企业客服成本下降60%。<br><br> | 来源：<code>https://yazhou-jingpin.com.cn
+</code></p><br><br><h3>沪深交易所降费，券商经纪业务标的集体上涨</h3><br><p>中国中冶放量上涨2.9%，新能源冶金订单爆发。<br><br> | 来源：<code>https://yazhou-jiujiujiu.com.cn
+</code></p><br><br><h3>全国水泥行业碳减排技术升级，低碳生产线占比超60%</h3><br><p>保险资管举牌机器人减速器标的，核心零部件获机构重仓。<br><br> | 来源：<code>https://yazhou-tiantang.cn
+</code></p><br><br><h3>政策性银行加大降息力度，基建项目融资成本大幅下降</h3><br><p>时代新材放量上涨4.0%，轨道交通零部件订单高增。<br><br> | 来源：<code>https://yazhou-tiantang.com.cn
+</code></p><br><br><h3>陕西煤业高股息兑现，单季业绩预告超预期</h3><br><p>腾讯云大模型生态开放，接入超十万第三方应用。<br><br> | 来源：<code>https://yazhou-wuma.com.cn
+</code></p><br><br><h3>成都大运会遗产持续释放，大运场馆全年免费开放超300天</h3><br><p>比亚迪全产业链布局分析：从电池到整车的协同优势。<br><br> | 来源：<code>https://yazhou-yiqu.com.cn
+</code></p><br><br><h3>电感产品价格上涨3%，电子全产业链盈利优化</h3><br><p>广州马拉松开跑，参赛选手破3万全马完赛率创新高。<br><br> | 来源：<code>https://yazhou-yiquerqu.com.cn
+</code></p><br><br><h3>全国古籍保护工程完成，超3000万册古籍得到妥善修复</h3><br><p>QFII大幅加仓IDC龙头，海外资金看好AI算力需求爆发。<br><br> | 来源：<code>https://yazhou-zaixian.com.cn
+</code></p><br><br><h3>大北农种业业务放量，前三季度业绩预增超55%</h3><br><p>新能源汽车销量上半年突破550万辆，市场渗透率达48%。<br><br> | 来源：<code>https://yazhouguochan.com.cn
+</code></p><br><br><h3>水利工程建设规划，水利基建板块走强</h3><br><p>中国平安涨超3.4%，寿险新业务价值增速转正。<br><br> | 来源：<code>https://yazhoujingpinshipin.com.cn
+</code></p><br><br><h3>全国臭氧浓度同比下降5%，夏季蓝天数量明显增加</h3><br><p>浪潮信息算力生态优势：AI服务器龙头的产业链协同能力。<br><br> | 来源：<code>https://yazhoujingpinwang.com.cn
+</code></p><br><br><h3>人民币汇率升值至6.8关口，航空板块汇兑收益大幅增加</h3><br><p>涪陵榨菜产品提价能力：细分赛道龙头的定价权解析。<br><br> | 来源：<code>https://yazhoujingpinyiqu.com.cn
+</code></p><br><br><h3>中国门球队世锦赛夺得冠军，中老年运动项目国际领先</h3><br><p>磷肥价格单月上涨8%，磷化工龙头盈利改善。<br><br> | 来源：<code>https://yazhoujingpinyiquerqu.com.cn
+</code></p><br><br><h3>恩捷股份隔膜份额提升，单季业绩预告超预期</h3><br><p>美联储开启降息周期，人民币汇率迎来趋势性升值。<br><br> | 来源：<code>https://yazhousese.cn
+</code></p><br><br><h3>定向降准支持县域金融机构，乡村振兴板块迎来利好</h3><br><p>铂价上涨10%，燃料电池催化剂板块迎来涨价催化。<br><br> | 来源：<code>https://yazhouwang.com.cn
+</code></p><br><br><h3>知名私募调研低空飞行器标的，eVTOL适航认证进度披露</h3><br><p>QFII大幅加仓预制菜龙头，B端渠道扩张获海外机构看好。<br><br> | 来源：<code>https://yazhouwuma.com.cn
+</code></p><br><br><h3>派能科技海外认证优势：户用储能产品的全球准入壁垒</h3><br><p>鸡蛋价格季节性上涨10%，蛋鸡养殖板块盈利改善。<br><br> | 来源：<code>https://yazhouwuma.net.cn
+</code></p><br><br><h3>泰胜风能海外出口优势：风电塔架出口龙头的成长逻辑</h3><br><p>全国城市建成区绿化覆盖率达42%，人均公园绿地面积15平方米。<br><br> | 来源：<code>https://yazhouyi-qu.com.cn
