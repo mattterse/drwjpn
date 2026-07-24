@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分21秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>全球区块链产业规模突破万亿美元，Web3.0应用落地加速</h3><br><p>大股东耗资3.8亿增持钙钛矿设备标的，助力核心设备研发。<br><br> | 来源：<code>https://fenglouxinxi.cn
+</code></p><br><br><h3>全国公立医院绩效考核连续5年提升，医疗服务质量持续改善</h3><br><p>定向降准支持县域金融机构，乡村振兴板块迎来利好。<br><br> | 来源：<code>https://fengyuling.com.cn
+</code></p><br><br><h3>北向资金大额增持美的集团，家电龙头外资持仓创历史新高</h3><br><p>养老金新进虚拟电厂标的，首次布局电力信息化赛道。<br><br> | 来源：<code>https://free-zaixian-cheng-web.com.cn
+</code></p><br><br><h3>全球氢能产业投资突破5000亿美元，商业化进程加速</h3><br><p>软件企业所得税优惠延续，国产软件板块异动。<br><br> | 来源：<code>https://fujianu-jiejie-weiba-dongman.com.cn
+</code></p><br><br><h3>华域汽车涨超3.9%，汽车零部件龙头业绩超预期</h3><br><p>全国酸雨区面积占比降至3.2%，降水质量持续改善。<br><br> | 来源：<code>https://fuli-ba.cn
+</code></p><br><br><h3>北向资金连续流入紫金矿业，黄金龙头外资持仓持续提升</h3><br><p>牧原股份涨超4.7%，生猪价格周期拐点显现。<br><br> | 来源：<code>https://fuli-daohang.com.cn
+</code></p><br><br><h3>正邦科技放量上涨4.5%，债务重组进展顺利</h3><br><p>吉利汽车放量上涨5.6%，新能源车型占比突破50%。<br><br> | 来源：<code>https://fuli-ji.com.cn
+</code></p><br><br><h3>中芯国际放量拉升7.3%，14nm产能利用率持续提升</h3><br><p>央行降准0.5个百分点，释放长期资金超1万亿元支持实体经济。<br><br> | 来源：<code>https://fuli-shipin.cn
+</code></p><br><br><h3>中芯国际管理层优势：半导体制造龙头的经营效率提升</h3><br><p>百亿私募组团调研光模块企业，1.6T产品送样海外客户。<br><br> | 来源：<code>https://fulidaohang.cn
+</code></p><br><br><h3>海大集团研发体系：水产饲料配方技术的持续迭代能力</h3><br><p>山西汾酒青花系列批价上涨7%，清香白酒板块景气回升。<br><br> | 来源：<code>https://fulidaohang.com.cn
+</code></p><br><br><h3>海洋牧场建设规划，海洋渔业板块集体上涨</h3><br><p>天然气价格季节性上涨15%，燃气运营板块迎来行情。<br><br> | 来源：<code>https://fulidaohang.org.cn
+</code></p><br><br><h3>工业硅价格触底反弹15%，光伏硅料成本端压力下降</h3><br><p>亚运会赛事热度超预期，体育产业板块全线上涨。<br><br> | 来源：<code>https://fulidaohangwang.cn
+</code></p><br><br><h3>非洲自贸区正式启动运营，覆盖13亿人口形成统一大市场</h3><br><p>大股东耗资3.8亿增持钙钛矿设备标的，助力核心设备研发。<br><br> | 来源：<code>https://fulidaohangzaixian.cn
+</code></p><br><br><h3>五粮液批价上行逻辑：渠道库存优化下的价格体系修复</h3><br><p>公募基金发行回暖，基金重仓标的集体拉升。<br><br> | 来源：<code>https://fulidaohangzaixianguankan.cn
+</code></p><br><br><h3>全国桨板赛事超百场，水上运动参与人数破千万</h3><br><p>美联储连续第二次降息，北向资金单日净流入超百亿。<br><br> | 来源：<code>https://fulipuzi.org.cn
+</code></p><br><br><h3>金砖国家新成员全部完成入盟流程，成员国总数达15国</h3><br><p>洋河股份梦之蓝品牌升级：次高端赛道的份额扩张逻辑。<br><br> | 来源：<code>https://fulishedaohang.cn
+</code></p><br><br><h3>中远海控集运运价反弹，单季业绩预告环比大增</h3><br><p>全球跨境直接投资回升至1.5万亿美元，流向绿色产业。<br><br> | 来源：<code>https://fulishipindao.cn
+</code></p><br><br><h3>运达股份放量上涨5.3%，风电整机盈利修复</h3><br><p>哪吒汽车涨超7.3%，下沉市场份额持续提升。<br><br> | 来源：<code>https://fulishipindaohang.cn
+</code></p><br><br><h3>机构资金净买入宁德时代12亿，核心资产获大资金加仓</h3><br><p>公募基金集中调研电力信息化龙头，虚拟电厂订单翻倍。<br><br> | 来源：<code>https://fulishipinwangzhan.cn
+</code></p><br><br><h3>全球储能市场规模突破500GWh，新型电力系统建设提速</h3><br><p>AI生成广告内容占比超70%，营销行业效率大幅提升。<br><br> | 来源：<code>https://fulishipinwangzhi.cn
