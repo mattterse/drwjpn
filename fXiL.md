@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月28日 01时30分21秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>被动元器件价格集体上涨，电子板块盈利边际改善</h3><br><p>伊利股份乳制品量价齐升，前三季度业绩预增超20%。<br><br> | 来源：<code>www.www.bbca.com.cn
+</code></p><br><br><h3>全球供应链重构加速，东南亚制造业份额持续提升</h3><br><p>圣邦股份模拟芯片布局：国产模拟芯片龙头的成长路径。<br><br> | 来源：<code>www.www.gmgs.com.cn
+</code></p><br><br><h3>实控人溢价15%增持碳纤维企业，传递长期发展信心</h3><br><p>稀土价格政策收储后上涨12%，稀土永磁板块集体异动。<br><br> | 来源：<code>www.www.abc.jx.cn
+</code></p><br><br><h3>实控人兜底式增持AI大模型标的，员工参与规模超预期</h3><br><p>全球汽车市场新能源渗透率突破30%，中国品牌引领潮流。<br><br> | 来源：<code>www.tiantian8.com
+</code></p><br><br><h3>国产AI芯片算力突破256TOPS，支撑大模型高效运行</h3><br><p>降准释放资金超万亿，流动性宽松支撑A股估值抬升。<br><br> | 来源：<code>www.zxyy999.com
+</code></p><br><br><h3>派能科技户用储能爆发，单季业绩预告超预期</h3><br><p>研学旅行扶持政策，教育旅游板块集体上涨。<br><br> | 来源：<code>www.qianfangdiy.cn
+</code></p><br><br><h3>万科A地产龙头抗风险能力：行业调整期的稳健经营逻辑</h3><br><p>头部机构组团到访冷链物流标的，生鲜配送网络覆盖披露。<br><br> | 来源：<code>www.tianmeichina.com
+</code></p><br><br><h3>调味品行业标准升级，调味品龙头板块走强</h3><br><p>体育旅游市场爆发，上半年马拉松赛事带动旅游消费超百亿。<br><br> | 来源：<code>www.79lr.com
+</code></p><br><br><h3>锌价突破2.8万元/吨，锌业上市公司盈利弹性释放</h3><br><p>酸奶产品价格上调4%，乳业细分板块盈利提升。<br><br> | 来源：<code>www.qzu.zj.cn
+</code></p><br><br><h3>五粮液品牌价值分析：浓香型白酒龙头的估值逻辑</h3><br><p>长电科技先进封装技术：全球封测龙头的份额提升逻辑。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>全国青少年校园足球特色学校超3万所，足球人口快速增长</h3><br><p>保险资管扎堆调研机器人减速器标的，产能释放进度披露。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>万科A地产行业格局：龙头房企的抗风险能力与复苏空间</h3><br><p>电池片价格小幅上调3%，光伏产业链盈利分配优化。<br><br> | 来源：<code>www.jyylj.com
+</code></p><br><br><h3>全国PPI同比由负转正，工业企业盈利预期持续改善</h3><br><p>养老金新进光伏逆变器标的，海外市占率提升获长期配置。<br><br> | 来源：<code>www.chtea.ac.cn
+</code></p><br><br><h3>洛阳龙门石窟暑期推出夜游项目，门票上线即秒空</h3><br><p>东方财富互联网券商生态：流量变现的长期成长逻辑。<br><br> | 来源：<code>www.idmcinc.com
+</code></p><br><br><h3>社保基金新进重仓钙钛矿光伏标的，持仓占比达4.2%</h3><br><p>长缆科技异动拉升4.3%，高压电缆需求回暖。<br><br> | 来源：<code>www.azi-cbt.com
+</code></p><br><br><h3>洋河股份梦之蓝品牌升级：次高端赛道的份额扩张逻辑</h3><br><p>知名私募大手笔增持储能电池标的，海外户储订单获资本布局。<br><br> | 来源：<code>www.huihuabang.com
+</code></p><br><br><h3>巴黎奥运会中国代表团斩获42金，位列金牌榜第二位创造境外参赛最佳</h3><br><p>天齐锂业锂矿资源储备：全球锂矿龙头的资源禀赋优势。<br><br> | 来源：<code>www.jieruit.com
+</code></p><br><br><h3>美联储降息后大宗商品集体上涨，有色板块全线异动</h3><br><p>央行下调MLF利率10BP，货币政策宽松力度加大。<br><br> | 来源：<code>www.bjgengke.com
+</code></p><br><br><h3>城市漫步Citywalk成新潮流，相关搜索量同比暴涨300%</h3><br><p>全球人工智能芯片市场规模突破1500亿美元，算力需求暴涨。<br><br> | 来源：<code>www.kayhaerland.com
+</code></p><br><br><h3>高管团队集体增持工业AI龙头，合计增持金额超2.3亿</h3><br><p>天合光能N型技术优势：光伏行业技术迭代下的领先地位。<br><br> | 来源：<code>www.gzly118.com
+</code></p><br><br><h3>中澳关系持续回暖，双边贸易额同比增长12%</h3><br><p>全国生物燃料乙醇产能突破500万吨，替代传统化石燃料。<br><br> | 来源：<code>www.gntbz.cn
