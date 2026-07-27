@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月28日 01时30分24秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>中际旭创再创历史新高，800G光模块份额超70%</h3><br><p>天合光能放量上涨5.5%，N型组件渗透率持续提升。<br><br> | 来源：<code>www.ituijie.com
+</code></p><br><br><h3>全球智能家居市场规模突破1万亿美元，智慧家庭普及</h3><br><p>实控人兜底式增持中药配方颗粒标的，员工参与比例超85%。<br><br> | 来源：<code>www.mc53.cn
+</code></p><br><br><h3>中国与中东欧国家合作升级，互联互通项目持续落地</h3><br><p>中国女子摔跤队世锦赛斩获3金，奥运备战实力强劲。<br><br> | 来源：<code>www.szhdly.com.cn
+</code></p><br><br><h3>三一重工全球化布局：工程机械龙头的第二增长曲线</h3><br><p>天齐锂业资源禀赋优势：锂矿龙头的盈利弹性测算。<br><br> | 来源：<code>www.88684.org
+</code></p><br><br><h3>金砖国家新成员全部完成入盟流程，成员国总数达15国</h3><br><p>AI视频修复技术普及，老电影4K修复效率提升10倍。<br><br> | 来源：<code>www.fjzp.net
+</code></p><br><br><h3>固态电池试点线投产，固态电池产业链集体异动</h3><br><p>长三角一体化新规划落地，长三角本地股集体拉升。<br><br> | 来源：<code>www.hanchaofan.com
+</code></p><br><br><h3>中国与海湾国家合作深化，能源、金融多领域协同发展</h3><br><p>武当山暑期游客量突破120万人次，道教文化游持续升温。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>洋河股份梦之蓝放量，单季业绩预告超预期</h3><br><p>国内音乐节市场爆发，上半年演出场次同比增长150%。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>圣邦股份放量上涨4.6%，模拟芯片国产替代加速</h3><br><p>产业链产品涨价类（100个）。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>小米汽车交付量超预期，小米汽车产业链全线爆发</h3><br><p>中国短道速滑队世锦赛斩获4金，冰上项目实力稳固。<br><br> | 来源：<code>www.captainandthechief.com
+</code></p><br><br><h3>中国田径队世锦赛斩获3金，男子跳远打破尘封20年纪录</h3><br><p>软件企业所得税优惠延续，国产软件板块异动。<br><br> | 来源：<code>www.szdesign-art.com
+</code></p><br><br><h3>意大利经济增速超预期，旅游业拉动经济强劲增长</h3><br><p>全国统一大市场建设取得阶段性进展，流通成本下降15%。<br><br> | 来源：<code>www.vetb-us.com
+</code></p><br><br><h3>葡萄牙经济增速达2.3%，旅游业持续拉动增长</h3><br><p>保险资管举牌绿电运营标的，长期配置价值获机构认可。<br><br> | 来源：<code>www.winfae.com
+</code></p><br><br><h3>全国生态保护红线划定完成，覆盖超三分之一陆域面积</h3><br><p>啤酒开启新一轮涨价潮，啤酒板块盈利弹性释放。<br><br> | 来源：<code>www.hmmanhua.com
+</code></p><br><br><h3>量子通信标的启动申购，干线网络建设订单同比翻倍</h3><br><p>国内政策性降息落地，宽信用进程加速推进。<br><br> | 来源：<code>www.hebccpi.com
+</code></p><br><br><h3>海外资管组团调研光伏逆变器标的，海外市占率突破30%</h3><br><p>杭州西湖暑期日均客流超30万，智慧景区系统保障游览秩序。<br><br> | 来源：<code>www.cncbsc.com
+</code></p><br><br><h3>北向资金单日净流入超150亿，降息后外资加速入场</h3><br><p>暑期国内游人次突破18亿，跨省长线游订单同比暴涨120%。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>北京国际铁人三项赛举办，吸引全球千名选手参赛</h3><br><p>普惠小微贷款利率进一步下行，中小微企业盈利改善。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>外资资管集中调研跨境电商龙头，出口增速数据首次公开</h3><br><p>2026年经济运行稳中向好，高质量发展迈出坚实步伐。<br><br> | 来源：<code>www.77ttk.com
+</code></p><br><br><h3>汽车零部件赛道景气度上行：细分方向机会全梳理</h3><br><p>宝钢股份产品结构升级：高端钢铁的盈利稳定性分析。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>AI办公软件渗透率超60%，成为职场人必备工具</h3><br><p>量子计算原型机新突破，量子科技板块集体拉升。<br><br> | 来源：<code>www.zkcom-iot.com
