@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月27日 20时39分34秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>产业资本集中增持元宇宙内容龙头，布局线下体验店扩张</h3><br><p>东数西算工程新节点开工，IDC算力板块走强。<br><br> | 来源：<code>www.hanchaofan.com
+</code></p><br><br><h3>小米汽车交付量超预期，小米汽车产业链全线爆发</h3><br><p>中国平安涨超3.4%，寿险新业务价值增速转正。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>隆平高科种业龙头优势：国内种业龙头的研发与渠道积累</h3><br><p>知名私募调研光伏N型电池标的，TOPCon电池转换效率突破26%。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>中国中车全球轨交布局：一带一路下的海外订单增长逻辑</h3><br><p>中际旭创光模块技术优势：全球数通市场的份额扩张。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>世界贸易组织第13届部长级会议召开，达成多项多边协议</h3><br><p>苏州园林暑期接待人次破500万，江南古典文旅持续走红。<br><br> | 来源：<code>www.captainandthechief.com
+</code></p><br><br><h3>全国远程医疗覆盖所有县域，优质医疗资源下沉至基层</h3><br><p>北向资金单日买入海康威视3.2亿，AI安防龙头获外资流入。<br><br> | 来源：<code>www.szdesign-art.com
+</code></p><br><br><h3>固德威户用储能爆发，单季业绩预告超预期</h3><br><p>机构席位大额买入洋河股份6900万，白酒龙头获长线布局。<br><br> | 来源：<code>www.vetb-us.com
+</code></p><br><br><h3>美联储宣布降息25BP，全球权益资产迎来估值修复窗口</h3><br><p>上半年全国居民消费支出同比增长7.3%，服务消费占比提升。<br><br> | 来源：<code>www.winfae.com
+</code></p><br><br><h3>印度经济增速达7.2%，成为全球增长最快主要经济体</h3><br><p>全国工业余热利用项目大规模落地，年节能超千万吨标准煤。<br><br> | 来源：<code>www.hmmanhua.com
+</code></p><br><br><h3>天然气价格季节性上涨15%，燃气运营板块迎来行情</h3><br><p>剧本杀门店超5万家，沉浸式文旅体验成为年轻消费热点。<br><br> | 来源：<code>www.hebccpi.com
+</code></p><br><br><h3>国内AI生成短视频用户破5亿，短视频行业迎来生产变革</h3><br><p>江特电机锂矿资源优势：云母提锂龙头的盈利弹性解析。<br><br> | 来源：<code>www.cncbsc.com
+</code></p><br><br><h3>鱼类产品价格上调10%，渔业板块迎来行情</h3><br><p>明阳智能海上风电优势：大兆瓦风机的技术领先性逻辑。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>北方稀土异动拉升，稀土永磁行业供需格局优化</h3><br><p>浪潮信息AI服务器产能：算力需求爆发下的业绩弹性。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>华为智选新车型发布，相关合作车企单日大涨</h3><br><p>量子通信标的启动申购，干线网络建设订单同比翻倍。<br><br> | 来源：<code>www.77ttk.com
+</code></p><br><br><h3>故宫博物院暑期门票秒空，日均接待游客突破8万人次</h3><br><p>养老金新进创新药龙头，布局创新管线长期成长逻辑。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>国内大模型评测标准发布，统一行业能力评估体系</h3><br><p>存款利率迎来新一轮下调，银行板块短期承压负债端改善。<br><br> | 来源：<code>www.zkcom-iot.com
+</code></p><br><br><h3>三安光电化合物半导体布局：LED+碳化硅的长期空间</h3><br><p>大金重工塔筒出口翻倍，单季业绩预告超预期。<br><br> | 来源：<code>www.thepodala.com
+</code></p><br><br><h3>白卡纸价格连续上涨8%，白卡纸龙头盈利弹性释放</h3><br><p>鱼类产品价格上调10%，渔业板块迎来行情。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>散户最容易踩的坑：涨一点就卖，跌一点就割，最后两头亏</h3><br><p>宝钢股份绿色低碳优势：钢铁行业碳中和下的领先地位。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>明阳智能大兆瓦风机优势：海上风电赛道的龙头领先性</h3><br><p>阳光电源技术迭代能力：逆变器龙头的全球竞争力。<br><br> | 来源：<code>www.hnltjy.com
+</code></p><br><br><h3>商业航天准入政策放宽，商业航天标的异动</h3><br><p>中兴通讯通信技术积累：6G时代的核心竞争力展望。<br><br> | 来源：<code>www.www.bbca.com.cn
