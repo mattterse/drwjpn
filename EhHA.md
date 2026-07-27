@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月27日 20时39分36秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>香港高校内地招生扩容500名额，新增大湾区相关特色专业</h3><br><p>腾讯混元大模型企业服务升级，助力政务、金融行业数字化。<br><br> | 来源：<code>www.jbhn.cn
+</code></p><br><br><h3>海康威视W底形态确立，底部反转信号明确</h3><br><p>多地出台民宿管理新规，规范行业发展保障游客权益。<br><br> | 来源：<code>www.pinlie.cn
+</code></p><br><br><h3>全国体育彩票年销量突破5000亿元，公益金助力民生事业</h3><br><p>镁价单月上涨18%，镁合金板块迎来产品涨价行情。<br><br> | 来源：<code>www.ituijie.com
+</code></p><br><br><h3>宝钢股份涨超3.1%，板材价格企稳回升</h3><br><p>大金重工塔筒出口翻倍，单季业绩预告超预期。<br><br> | 来源：<code>www.mc53.cn
+</code></p><br><br><h3>海上风电大基地集中开工，海缆产业链标的上涨</h3><br><p>保险资管扎堆调研航空发动机标的，量产交付进度引关注。<br><br> | 来源：<code>www.szhdly.com.cn
+</code></p><br><br><h3>东方电气风电设备技术：国内能源装备龙头的多赛道布局</h3><br><p>全国机动车国六b标准全面实施，新车排放污染大幅降低。<br><br> | 来源：<code>www.88684.org
+</code></p><br><br><h3>央行加大公开市场操作力度，资金面维持平稳宽松</h3><br><p>中国铁建异动拉升2.7%，海外项目落地加速。<br><br> | 来源：<code>www.fjzp.net
+</code></p><br><br><h3>游资知名席位联手买入中际旭创5亿，光模块龙头获热炒</h3><br><p>中国女排世界联赛总决赛夺冠，重返世界第一排名。<br><br> | 来源：<code>www.hanchaofan.com
+</code></p><br><br><h3>QFII新进跨境电商龙头，海外机构看好出口高增长逻辑</h3><br><p>定向降息支持制造业高端化，工业母机板块获定向利好。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>知名私募大手笔增持乳制品龙头，持仓占比达3.5%</h3><br><p>大股东耗资4.5亿增持碳化硅衬底龙头，助力6英寸产能扩张。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>全国危险废物处置能力突破2亿吨/年，安全处置率100%</h3><br><p>全国新能源装机容量突破21亿千瓦，占总装机比重超52%。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>储能温控龙头开启新股申购，海外客户覆盖全球头部厂商</h3><br><p>全国城市慢行系统建设提速，绿道总里程突破15万公里。<br><br> | 来源：<code>www.captainandthechief.com
+</code></p><br><br><h3>全国县域商业体系建设完成，农村消费市场潜力持续释放</h3><br><p>安琪酵母放量上涨3.6%，海外市场拓展超预期。<br><br> | 来源：<code>www.szdesign-art.com
+</code></p><br><br><h3>中国跆拳道队世锦赛斩获5金，金牌数位列奖牌榜第一</h3><br><p>控股股东耗资5.2亿增持智慧交通标的，回购股份用于股权激励。<br><br> | 来源：<code>www.vetb-us.com
+</code></p><br><br><h3>海缆价格上调5%，海缆龙头订单盈利弹性提升</h3><br><p>跨境电商出口高增，跨境电商板块全线爆发。<br><br> | 来源：<code>www.winfae.com
+</code></p><br><br><h3>世界大学排名发布，清华北大首次双双跻身全球前十</h3><br><p>科达利结构件精密制造：锂电池结构件龙头的全球份额。<br><br> | 来源：<code>www.hmmanhua.com
+</code></p><br><br><h3>比亚迪垂直整合优势：供应链自主可控下的抗风险能力</h3><br><p>亚太经合组织峰会召开，达成数字经济合作框架。<br><br> | 来源：<code>www.hebccpi.com
+</code></p><br><br><h3>长安汽车涨停封板，突破后的延续性如何判断</h3><br><p>杭州亚运会一周年纪念活动举办，场馆全年接待健身人次破亿。<br><br> | 来源：<code>www.cncbsc.com
+</code></p><br><br><h3>中国铁建异动拉升2.7%，海外项目落地加速</h3><br><p>鸡蛋价格季节性上涨10%，蛋鸡养殖板块盈利改善。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>量子信息产业规划发布，量子通信标的全线拉升</h3><br><p>三亚暑期酒店入住率超98%，高端度假产品订单暴涨。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>高管团队集体调研后集中增持6G通信标的，合计增持超1亿</h3><br><p>外资资管连续加仓CXO龙头，近3月持仓占比提升至7%。<br><br> | 来源：<code>www.77ttk.com
