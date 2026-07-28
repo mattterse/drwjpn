@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分43秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>基金公司集体到访氢能储运龙头，高压储氢瓶订单爆发</h3><br><p>国内AI产业规模破2万亿，年增速超35%成经济新引擎。<br><br> | 来源：<code>https://heiliaozaixiankan.cn
+</code></p><br><br><h3>游资知名席位联手买入中远海控7500万，集运标的获追捧</h3><br><p>头部券商到访汽车座椅龙头，新势力车企订单占比突破50%。<br><br> | 来源：<code>https://heiliaozhengnengliang.cn
+</code></p><br><br><h3>金龙汽车涨超3.6%，新能源客车订单持续落地</h3><br><p>生成式AI服务管理细则，AI应用板块情绪修复。<br><br> | 来源：<code>https://heiliaozhongwenwang.cn
+</code></p><br><br><h3>生猪价格突破18元/公斤，养殖板块盈利拐点显现</h3><br><p>大股东耗资6亿增持半导体材料龙头，彰显国产替代信心。<br><br> | 来源：<code>https://heimacili.com.cn
+</code></p><br><br><h3>新型电力系统建设规划，电力设备板块走强</h3><br><p>全球文化产业规模突破2.5万亿美元，数字文化占比提升。<br><br> | 来源：<code>https://heishequliao.com.cn
+</code></p><br><br><h3>公募基金发行回暖，基金重仓标的集体拉升</h3><br><p>游资知名席位联手买入固德威5000万，储能标的获追捧。<br><br> | 来源：<code>https://heisimeinubeicao.com.cn
+</code></p><br><br><h3>研学旅行扶持政策，教育旅游板块集体上涨</h3><br><p>煤炭价格企稳回升8%，煤炭高股息标的盈利稳定。<br><br> | 来源：<code>https://heiwangliao.cn
+</code></p><br><br><h3>存储模组龙头登陆科创板，AI存储产品出货量超行业预期</h3><br><p>机构+北向合力买入新希望6700万，养殖标的获资金布局。<br><br> | 来源：<code>https://henhenai.com.cn
+</code></p><br><br><h3>大模型轻量化技术突破，1B参数模型效果追平百亿级模型</h3><br><p>存量房贷利率下调后居民消费回升，旅游酒店板块受益。<br><br> | 来源：<code>https://henhenlu.com.cn
+</code></p><br><br><h3>跨境游持续升温，中国游客赴东南亚人次同比暴涨200%</h3><br><p>全国人均体育场地面积达2.8平方米，健身设施供给持续增加。<br><br> | 来源：<code>https://hg-sports-hub.com.cn
+</code></p><br><br><h3>养老金入市比例提升，养老金重仓标的走强</h3><br><p>全国大学生就业帮扶行动启动，国企新增岗位超80万。<br><br> | 来源：<code>https://hg-sports-net.com.cn
+</code></p><br><br><h3>汽车下乡补贴政策出台，自主车企标的全线上涨</h3><br><p>五粮液品牌与渠道优势：浓香型白酒龙头的护城河解析。<br><br> | 来源：<code>https://hg-sports-pro.com.cn
+</code></p><br><br><h3>北向资金大额扫货紫金矿业3.5亿，黄金龙头获外资持续流入</h3><br><p>桂林山水暑期游热度回升，漓江游船日均发船超200艘。<br><br> | 来源：<code>https://hitozuma.com.cn
+</code></p><br><br><h3>医疗器械集采结果温和，医疗设备标的全线异动</h3><br><p>全球跨境旅游人次上半年突破7亿，旅游业全面复苏。<br><br> | 来源：<code>https://hman.com.cn
+</code></p><br><br><h3>英伟达发布新一代AI芯片，算力板块再度走强</h3><br><p>中国跳水队世锦赛包揽全部13金，延续梦之队统治力。<br><br> | 来源：<code>https://hmanhua.com.cn
+</code></p><br><br><h3>全国船舶排放控制区扩大，海运污染减排成效突出</h3><br><p>养老金新进创新药龙头，布局创新管线长期成长逻辑。<br><br> | 来源：<code>https://hong-taoshipin.com.cn
+</code></p><br><br><h3>5年期LPR下调带动地产链估值修复，家居家电板块集体上涨</h3><br><p>全国非遗文旅体验点破2000个，非遗游成暑期新潮流。<br><br> | 来源：<code>https://hong-xingshipin.com.cn
+</code></p><br><br><h3>央行下调MLF利率10个基点，引导市场利率下行</h3><br><p>国产航母新进展，军工船舶板块集体异动。<br><br> | 来源：<code>https://hongse-shamo.com.cn
+</code></p><br><br><h3>工业大模型落地万座工厂，生产效率平均提升30%</h3><br><p>房地产预售资金监管优化，地产链标的全线拉升。<br><br> | 来源：<code>https://hongtao-shipin.com.cn
+</code></p><br><br><h3>全球供应链重构加速，东南亚制造业份额持续提升</h3><br><p>华域汽车涨超3.9%，汽车零部件龙头业绩超预期。<br><br> | 来源：<code>https://hongtao-shipinwangyeban.com.cn
