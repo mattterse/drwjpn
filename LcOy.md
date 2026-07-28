@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分40秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>糖果产品价格上调6%，休闲食品全产业链景气回升</h3><br><p>全球文化产业规模突破2.5万亿美元，数字文化占比提升。<br><br> | 来源：<code>https://850-official-old.com
+</code></p><br><br><h3>央行下调再贷款利率，精准支持科技创新领域</h3><br><p>西安兵马俑暑期日均客流超7万，智慧分流系统提升游览体验。<br><br> | 来源：<code>https://850-version-new.com
+</code></p><br><br><h3>美联储降息后大宗商品集体上涨，有色板块全线异动</h3><br><p>梅花生物氨基酸价格反弹，前三季度业绩预增超40%。<br><br> | 来源：<code>https://8866h-cc-vip.com
+</code></p><br><br><h3>天齐锂业债务优化：高负债锂矿龙头的财务健康度改善</h3><br><p>美联储宣布降息50BP超市场预期，全球风险资产暴涨。<br><br> | 来源：<code>https://8868-app-vip.com
+</code></p><br><br><h3>白酒批价连续上涨，高端白酒板块盈利弹性释放</h3><br><p>全国新能源装机容量突破21亿千瓦，占总装机比重超52%。<br><br> | 来源：<code>https://8x8x8.com.cn
+</code></p><br><br><h3>北方华创涨超6.3%，半导体设备国产替代进度提速</h3><br><p>调味品开启集体涨价，食品板块盈利迎来修复。<br><br> | 来源：<code>https://8x8x8x.com.cn
+</code></p><br><br><h3>生活用纸价格上调4%，生活用纸龙头盈利提升</h3><br><p>医美行业合规化政策，头部医美标的拉升。<br><br> | 来源：<code>https://8x8xshuimitao.com.cn
+</code></p><br><br><h3>北向资金大额扫货大金重工5100万，塔筒龙头获外资流入</h3><br><p>全国酸雨区面积占比降至3.2%，降水质量持续改善。<br><br> | 来源：<code>https://8x8xzaixianguankanwanzhengban.com.cn
+</code></p><br><br><h3>国产光刻机交付突破，半导体设备板块全线大涨</h3><br><p>社保基金现身镁合金龙头，汽车轻量化订单同比翻倍。<br><br> | 来源：<code>https://91-baihu.com.cn
+</code></p><br><br><h3>中国神华创阶段新高2.8%，高股息属性持续获资金追捧</h3><br><p>深股通席位单日买入海天味业6100万，调味品标的增持。<br><br> | 来源：<code>https://91-cc.com.cn
+</code></p><br><br><h3>机构+北向合力买入山西汾酒1.7亿，清香白酒龙头获资金布局</h3><br><p>社保基金新进生物育种标的，布局农业科技长期成长。<br><br> | 来源：<code>https://91-chengren-zaixian.com.cn
+</code></p><br><br><h3>德业股份储能逆变器优势：民营新能源企业的突围逻辑</h3><br><p>头部机构组团到访创新药龙头，核心管线临床三期数据披露。<br><br> | 来源：<code>https://91-chigua.com.cn
+</code></p><br><br><h3>中国通号高铁信号订单高增，单季业绩预告超预期</h3><br><p>算力基础设施建设指导意见，算力板块全线走强。<br><br> | 来源：<code>https://91-chiguawang.com.cn
+</code></p><br><br><h3>国家发改委出台促消费20条新政，重点支持汽车家电消费</h3><br><p>百亿私募组团调研固态电解质企业，实验室数据突破行业阈值。<br><br> | 来源：<code>https://91-chuanmei.com.cn
+</code></p><br><br><h3>央行下调再贷款利率，精准支持科技创新领域</h3><br><p>国产美食纪录片全网播放量突破180亿，舌尖上的中国系列持续更新。<br><br> | 来源：<code>https://91-ci-yuan.com.cn
+</code></p><br><br><h3>美联储降息周期开启，黄金珠宝板块迎来趋势性行情</h3><br><p>百亿私募组团调研光模块企业，1.6T产品送样海外客户。<br><br> | 来源：<code>https://91-ciyuan.com.cn
+</code></p><br><br><h3>登海种业放量上涨4.0%，玉米种子需求持续向好</h3><br><p>中国羽毛球队汤尤杯卫冕成功，继续保持世界顶尖水平。<br><br> | 来源：<code>https://91-com.com.cn
+</code></p><br><br><h3>杀虫剂价格上涨12%，农化产业链景气回升</h3><br><p>机构席位大额买入东方电缆1.8亿，海缆龙头获长线资金布局。<br><br> | 来源：<code>https://91-dapian.com.cn
+</code></p><br><br><h3>锂矿板块触底反弹：行业拐点是否已经正式确立</h3><br><p>国家版本馆全部建成开放，典藏中华文脉珍贵资源。<br><br> | 来源：<code>https://91-down.com.cn
+</code></p><br><br><h3>泰山暑期单日登顶客流破6万，夜间登山游客占比超70%</h3><br><p>外资单日扫货招商银行10亿，银行龙头外资持仓稳步提升。<br><br> | 来源：<code>https://91-guanwang.com.cn
